@@ -85,7 +85,6 @@ def main() -> None:
     out = [
         "# Eventi in programma - Certe Notti Spa & Privee",
         "",
-        f"Fonte: {EVENTI_URL}",
         f"Ultimo aggiornamento: {adesso.strftime('%d/%m/%Y %H:%M')} (ora italiana)",
         "",
         f"Prossimi eventi: {len(futuri)}",
@@ -107,8 +106,6 @@ def main() -> None:
         out.append("")
         out.append(f"- **Data:** {data_lunga}")
         out.append(f"- **Ora:** {dt.strftime('%H:%M')}")
-        if e["link"]:
-            out.append(f"- **Link:** {e['link']}")
         out.append("")
         desc = get_descrizione(e["id"])
         if desc:
@@ -116,13 +113,6 @@ def main() -> None:
             out.append("")
         out.append("---")
         out.append("")
-
-    out.append("## Contatti")
-    out.append("")
-    out.append("- Sito: https://www.certenotti.eu")
-    out.append("- Telefono / WhatsApp: (+39) 320 401 0700")
-    out.append("- Aperto da lunedi a domenica")
-    out.append("")
 
     with open(OUTPUT, "w", encoding="utf-8") as f:
         f.write("\n".join(out))
