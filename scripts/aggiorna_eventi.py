@@ -16,6 +16,28 @@ OUTPUT = "eventi.md"
 
 HEADERS = {"User-Agent": "Mozilla/5.0 (compatible; CerteNottiEventiBot/1.0)"}
 
+EMOJI_RE = re.compile(
+    "["
+    "\U0001F000-\U0001FAFF"  # blocchi emoji principali
+    "\U00002600-\U000027BF"  # simboli vari e dingbats
+    "\U00002B00-\U00002BFF"  # frecce e stelle
+    "\U0001F1E6-\U0001F1FF"  # bandiere
+    "\U0000FE00-\U0000FE0F"  # variation selector
+    "\U0000200D"             # zero width joiner
+    "\U000020E3"             # keycap
+    "\U000E0020-\U000E007F"  # tag characters
+    "]+",
+    flags=re.UNICODE,
+)
+
+
+def clean_text(txt: str) -> str:
+    """Rimuove emoji e normalizza spazi e righe vuote."""
+    txt = EMOJI_RE.sub("", txt)
+    lines = [re.sub(r"[ \t]+", " ", line).strip() for line in txt.splitlines()]
+    lines = [line for line in lines if line]
+    return "\n".join(lines)
+
 
 def fetch(url: str) -> str:
     req = urllib.request.Request(url, headers=HEADERS)
@@ -54,7 +76,7 @@ def parse_eventi_page(page: str) -> list[dict]:
         eventi.append(
             {
                 "id": m_id.group(1),
-                "title": html.unescape(strip_html(m_title.group(1))).strip(),
+                "title": clean_text(html.unescape(strip_html(m_title.group(1)))).strip(),
                 "link": m_link.group(1) if m_link else "",
                 "datetime": datetime.strptime(
                     f"{giorno} {ora}", "%d/%m/%Y %H:%M"
@@ -67,7 +89,7 @@ def parse_eventi_page(page: str) -> list[dict]:
 def get_descrizione(post_id: str) -> str:
     try:
         data = json.loads(fetch(API_POST.format(post_id)))
-        return strip_html(data["content"]["rendered"])
+        return clean_text(strip_html(data["content"]["rendered"]))
     except Exception:
         return ""
 
