@@ -1,7 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Fonte: https://www.certenotti.eu/eventi/
-Ultimo aggiornamento: 20/07/2026 21:34 (ora italiana)
+Ultimo aggiornamento: 20/07/2026 21:41 (ora italiana)
 
 Prossimi eventi: 9
 
@@ -11,7 +10,6 @@ Prossimi eventi: 9
 
 - **Data:** martedi 21 luglio 2026
 - **Ora:** 14:00
-- **Link:** https://www.certenotti.eu/sensual-spa-%f0%9f%92%96-7/
 
 Il tempo si ferma… e si accende il desiderio 🧖‍♀️
 Un rituale pensato per abbandonarti al piacere del relax
@@ -22,14 +20,14 @@ dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 e dei tuoi desideri più profondi 🫦
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-APERITIVO E SPRITZ  🍹
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+APERITIVO E SPRITZ  🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🦀
-PRIVÉ  🐽
+PRIVÉ  🐽
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -44,7 +42,6 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** mercoledi 22 luglio 2026
 - **Ora:** 14:00
-- **Link:** https://www.certenotti.eu/morenasex-game-%e2%9d%a4%ef%b8%8f%f0%9f%94%a5/
 
 Questa sera l’atmosfera si scalda lentamente ♨️
 luci basse ✨
@@ -57,14 +54,14 @@ perché certe serate non si raccontano, si vivono sulla pelle. 🔥💋
 😍 CORNER HOLE SPECIALE
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
 APERITIVO E SPRITZ 🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🍖
-PRIVÉ  🔞
+PRIVÉ  🔞
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -79,7 +76,6 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** giovedi 23 luglio 2026
 - **Ora:** 14:00
-- **Link:** https://www.certenotti.eu/spa-sotto-le-stelle-%f0%9f%8c%9f-7/
 
 Una notte diversa dal solito
 dove l’acqua calda incontra il cielo aperto 🌌
@@ -90,13 +86,13 @@ e percorsi relax per lasciarsi andare davvero… senza pensieri 😛
 Una notte così non si racconta… si vive ❤️‍🔥
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
 APERITIVO E SPRITZ 🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🍖
-PRIVÉ  🔞
+PRIVÉ  🔞
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -111,25 +107,24 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** venerdi 24 luglio 2026
 - **Ora:** 14:00
-- **Link:** https://www.certenotti.eu/%f0%9f%92%a6-pool-dinner-show-%f0%9f%8e%aa-latin-wings-girls/
 
 🍸 Dinner show raffinato
 Performance coinvolgenti 🔥
-🤩 Sguardi complici e giochi di seduzione
+🤩 Sguardi complici e giochi di seduzione
 Un venerdì dal fascino esclusivo 💫
 dove eleganza, trasgressione e sensualità si incontrano a bordo piscina ⛲
 tra luci soffuse, atmosfere intime e dettagli audaci
 per una notte da vivere senza filtri 🔞
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-APERITIVO E SPRITZ  🍹
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+APERITIVO E SPRITZ  🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🫕
 DISCO 🕺
-PRIVÉ  🐽
+PRIVÉ  🐽
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -144,14 +139,13 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** sabato 25 luglio 2026
 - **Ora:** 11:00
-- **Link:** https://www.certenotti.eu/morenasex-official-party-%f0%9f%a9%b7%f0%9f%92%99%f0%9f%92%9c/
 
 Una notte dove l’eleganza incontra la trasgressione 😈
 gli sguardi si accendono, i desideri si liberano
 e ogni dettaglio è pensato per sedurvi 💋
 🔥 Privé roventi
 Tentazioni ovunque 🍌
-💦  Voglia di osare fino all’alba
+💦  Voglia di osare fino all’alba
 MorenaSex apre le porte al piacere 🫦
 alla seduzione e alla voglia di vivere una notte senza regole
 👠 DRESS CODE OBBLIGATORIO 👔
@@ -160,15 +154,15 @@ trasparenze, spacchi audaci, lingerie, tacchi vertiginosi
 LUI: fascino deciso ed elegante… camicia aperta al punto giusto, completo scuro, stile impeccabile
 Lasciati andare…
 MorenaSex ti aspetta 🩷💙💜
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-PRANZO A BUFFET  🥗
-APERITIVO E SPRITZ  🍹
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+PRANZO A BUFFET  🥗
+APERITIVO E SPRITZ  🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🦀
 DISCO 🕺
-PRIVÉ  🐽
+PRIVÉ  🐽
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -183,10 +177,9 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** domenica 26 luglio 2026
 - **Ora:** 10:00
-- **Link:** https://www.certenotti.eu/pranzo-di-famiglia-jager-party-i-condominy-%f0%9f%a5%b3-2/
 
 UNA DOMENICA DI GIOCHI & SEX 😍
-By cpAdemar  ❤️‍🔥  I condominy
+By cpAdemar  ❤️‍🔥  I condominy
 Una giornata spensierata, frizzante e proibita 🔥
 Un pranzo in famiglia super vivace ❣️ tra sorrisi, sguardi complici e nuove conoscenze.
 Lasciati andare, rompi la routine e riscopri il piacere della leggerezza ✨
@@ -198,14 +191,14 @@ NO SQUIRT… NO PARTY 💦💦💦
 Dalle 13:30 fino a quando l’energia non si esaurisce…
 o fino all’ultimo che resta in piedi 😈🔥
 chi c’era sa già che tipo di follia stiamo parlando 😆
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-PRANZO A BUFFET  🍝
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+PRANZO A BUFFET  🍝
 APERITIVO E SPRITZ 🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA A BUFFET 🍖
-PRIVÉ  🔞
+PRIVÉ  🔞
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -220,7 +213,6 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** lunedi 27 luglio 2026
 - **Ora:** 11:00
-- **Link:** https://www.certenotti.eu/day-spa-%f0%9f%98%8d-27/
 
 💧 SPA & Seduzione – Summer Edition 🌞
 Il benessere si scalda, il desiderio si accende 🔥
@@ -230,15 +222,15 @@ Una giornata pensata per rigenerarti… e farti sognare 🌊💆‍♂️
 Tutti i lunedì d’estate ci prendiamo cura di te 🥰
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-PRANZO A BUFFET  🍝
-APERITIVO E SPRITZ  🍹
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+PRANZO A BUFFET  🍝
+APERITIVO E SPRITZ  🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🦀
-PRIVÉ  🐽
+PRIVÉ  🐽
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -253,7 +245,6 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** martedi 28 luglio 2026
 - **Ora:** 11:00
-- **Link:** https://www.certenotti.eu/sensual-spa-%f0%9f%92%96-8/
 
 Il tempo si ferma… e si accende il desiderio 🧖‍♀️
 Un rituale pensato per abbandonarti al piacere del relax
@@ -264,15 +255,15 @@ dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 e dei tuoi desideri più profondi 🫦
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-PRANZO A BUFFET  🍝
-APERITIVO E SPRITZ  🍹
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+PRANZO A BUFFET  🍝
+APERITIVO E SPRITZ  🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🦀
-PRIVÉ  🐽
+PRIVÉ  🐽
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -287,7 +278,6 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** mercoledi 29 luglio 2026
 - **Ora:** 11:00
-- **Link:** https://www.certenotti.eu/torneo-di-ping-pong-%f0%9f%8d%92-3/
 
 🏓🔥 Torneo di ping pong come non l’hai mai visto
 ironico e provocante, dove il dress code è… minimal🍑
@@ -298,15 +288,15 @@ Se pensi sia solo un torneo, preparati a ricrederti 😄
 Qui il gioco si fa serio… e tra un punto e l’altro la tensione sale 🫦
 💥 COPPIE OMAGGIO con PARTECIPO su MorenaSex 💥
 🚨 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO 🚨
-GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
-🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
-VASCA IDROMASSAGGIO CALDA  ♨️
-PISCINA FREDDA  🥶
-PRANZO A BUFFET  🍝
+GIARDINO ESTIVO 🌴 SOLARIUM 🏖️  SPA  🛀🏻
+🧖‍♀️ SAUNA E BAGNO TURCO  🌡️
+VASCA IDROMASSAGGIO CALDA  ♨️
+PISCINA FREDDA  🥶
+PRANZO A BUFFET  🍝
 APERITIVO E SPRITZ 🍹
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE 💦
 CENA SERVITA 🍖
-PRIVÉ  🔞
+PRIVÉ  🔞
 ~~~~
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
@@ -316,9 +306,3 @@ APERTI DA LUNEDÌ A DOMENICA
 ** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
-
-## Contatti
-
-- Sito: https://www.certenotti.eu
-- Telefono / WhatsApp: (+39) 320 401 0700
-- Aperto da lunedi a domenica
