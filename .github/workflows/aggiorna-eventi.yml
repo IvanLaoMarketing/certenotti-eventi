@@ -1,0 +1,35 @@
+name: Aggiorna eventi Certe Notti
+
+on:
+  schedule:
+    # Ogni 6 ore (orario UTC)
+    - cron: "17 */6 * * *"
+  workflow_dispatch: # consente l'esecuzione manuale dalla tab Actions
+
+permissions:
+  contents: write
+
+jobs:
+  aggiorna:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+
+      - uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Genera eventi.md
+        run: python scripts/aggiorna_eventi.py
+
+      - name: Commit e push se ci sono modifiche
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add eventi.md
+          if git diff --cached --quiet; then
+            echo "Nessuna modifica agli eventi."
+          else
+            git commit -m "Aggiornamento eventi $(date -u +'%Y-%m-%d %H:%M UTC')"
+            git push
+          fi
