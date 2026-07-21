@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 20/07/2026 21:47 (ora italiana)
+Ultimo aggiornamento: 21/07/2026 05:49 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -20,7 +20,7 @@ Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
@@ -54,7 +54,7 @@ perché certe serate non si raccontano, si vivono sulla pelle.
 CORNER HOLE SPECIALE
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
@@ -86,7 +86,7 @@ e percorsi relax per lasciarsi andare davvero… senza pensieri
 Una notte così non si racconta… si vive
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
@@ -117,7 +117,7 @@ tra luci soffuse, atmosfere intime e dettagli audaci
 per una notte da vivere senza filtri
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
@@ -154,7 +154,7 @@ trasparenze, spacchi audaci, lingerie, tacchi vertiginosi
 LUI: fascino deciso ed elegante… camicia aperta al punto giusto, completo scuro, stile impeccabile
 Lasciati andare…
 MorenaSex ti aspetta
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
@@ -179,7 +179,7 @@ APERTI DA LUNEDÌ A DOMENICA
 - **Ora:** 10:00
 
 UNA DOMENICA DI GIOCHI & SEX
-By cpAdemar    I condominy
+By cpAdemar    I condominy
 Una giornata spensierata, frizzante e proibita
 Un pranzo in famiglia super vivace tra sorrisi, sguardi complici e nuove conoscenze.
 Lasciati andare, rompi la routine e riscopri il piacere della leggerezza
@@ -191,7 +191,7 @@ NO SQUIRT… NO PARTY
 Dalle 13:30 fino a quando l’energia non si esaurisce…
 o fino all’ultimo che resta in piedi
 chi c’era sa già che tipo di follia stiamo parlando
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
@@ -222,7 +222,7 @@ Una giornata pensata per rigenerarti… e farti sognare
 Tutti i lunedì d’estate ci prendiamo cura di te
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
@@ -255,7 +255,7 @@ Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
@@ -288,8 +288,40 @@ Se pensi sia solo un torneo, preparati a ricrederti
 Qui il gioco si fa serio… e tra un punto e l’altro la tensione sale
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
+GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SPA SOTTO LE STELLE
+
+- **Data:** giovedi 30 luglio 2026
+- **Ora:** 11:00
+
+Una notte diversa dal solito
+dove l’acqua calda incontra il cielo aperto
+e l’atmosfera si fa più intensa
+Vasche illuminate vapore nell’aria musica soft e luci basse
+Sauna, idromassaggio
+e percorsi relax per lasciarsi andare davvero… senza pensieri
+Una notte così non si racconta… si vive
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
