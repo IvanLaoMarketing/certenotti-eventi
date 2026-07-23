@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/07/2026 10:46 (ora italiana)
+Ultimo aggiornamento: 23/07/2026 16:35 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## SPA SOTTO LE STELLE
-
-- **Data:** giovedi 23 luglio 2026
-- **Ora:** 14:00
-
-Una notte diversa dal solito
-dove l’acqua calda incontra il cielo aperto
-e l’atmosfera si fa più intensa
-Vasche illuminate vapore nell’aria musica soft e luci basse
-Sauna, idromassaggio
-e percorsi relax per lasciarsi andare davvero… senza pensieri
-Una notte così non si racconta… si vive
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
