@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/07/2026 21:48 (ora italiana)
+Ultimo aggiornamento: 24/07/2026 05:47 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -290,6 +290,36 @@ Ingresso selezionato
 Dress code TOTAL WHITE obbligatorio
 Lascia fuori i freni.
 WHITE PARTY si vive fino all’ultima vibrazione
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MISS MAGLIETTA BAGNATA
+
+- **Data:** domenica 2 agosto 2026
+- **Ora:** 10:00
+
+Preparati a una giornata di sole
+spruzzi d’acqua
+tette al vento
+musica e divertimento senza pause
+PREMIAZIONE MISS Maglietta Bagnata
+Un day party dove l’unica regola è godersi il piacere
+fino all’ultima goccia
 GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
