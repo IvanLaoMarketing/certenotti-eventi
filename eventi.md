@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 26/07/2026 21:37 (ora italiana)
+Ultimo aggiornamento: 27/07/2026 12:11 (ora italiana)
 
 Prossimi eventi: 9
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 27 luglio 2026
-- **Ora:** 11:00
-
-SPA & Seduzione – Summer Edition
-Il benessere si scalda, il desiderio si accende
-Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
-acqua, relax e un pizzico di trasgressione in privé
-Una giornata pensata per rigenerarti… e farti sognare
-Tutti i lunedì d’estate ci prendiamo cura di te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -276,6 +244,40 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## 3° KAMASUTRA CONTEST& NOCHE CALIENTE
+
+- **Data:** mercoledi 5 agosto 2026
+- **Ora:** 11:00
+
+Evento esclusivo tra luci soffuse e atmosfera provocante
+Coppie in scena tra ironia e complicità
+movimenti che diventano linguaggio e sfida elegante.
+Tensione, gioco e sguardi dicono più delle parole
+Nessun giudizio, solo energia
+tra arte, sesso e provocazione
+Aufguss Notturni
+Dj Set
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
