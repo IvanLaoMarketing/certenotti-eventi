@@ -1,41 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 28/07/2026 05:39 (ora italiana)
+Ultimo aggiornamento: 28/07/2026 11:07 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## SENSUAL SPA
-
-- **Data:** martedi 28 luglio 2026
-- **Ora:** 11:00
-
-Il tempo si ferma… e si accende il desiderio
-Un rituale pensato per abbandonarti al piacere del relax
-tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
-Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
-dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
-Ogni martedì siamo al servizio del tuo benessere…
-e dei tuoi desideri più profondi
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
@@ -104,7 +71,7 @@ APERTI DA LUNEDÌ A DOMENICA
 
 ---
 
-## POOL DINNER SHOW
+## POOL DINNER SHOW ALBERTO VIO
 
 - **Data:** venerdi 31 luglio 2026
 - **Ora:** 11:00
