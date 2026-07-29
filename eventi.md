@@ -1,41 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 29/07/2026 05:43 (ora italiana)
+Ultimo aggiornamento: 29/07/2026 11:11 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## TORNEO DI PING PONG
-
-- **Data:** mercoledi 29 luglio 2026
-- **Ora:** 11:00
-
-Torneo di ping pong come non l’hai mai visto
-ironico e provocante, dove il dress code è… minimal
-Sfide ravvicinate, energia elettrica
-Drink, musica e un’atmosfera che si scalda punto dopo punto
-Sguardi intensi, sorrisi maliziosi, complicità che nasce al volo
-Se pensi sia solo un torneo, preparati a ricrederti
-Qui il gioco si fa serio… e tra un punto e l’altro la tensione sale
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
