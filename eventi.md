@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 29/07/2026 21:47 (ora italiana)
+Ultimo aggiornamento: 30/07/2026 05:32 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -585,6 +585,66 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HAWAIIAN PARTY
+
+- **Data:** sabato 8 agosto 2026
+- **Ora:** 11:00
+
+VIBRANTE
+TROPICALE
+INCANTATA
+Una serata immersa in profumi esotici,
+luci soffuse e atmosfere che sanno di isole lontane
+Un viaggio nelle Hawaii senza lasciare la città
+HAWAIIAN GADGETS PER TUTTI
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HAWAIIAN PARTY
+
+- **Data:** sabato 8 agosto 2026
+- **Ora:** 11:00
+
+VIBRANTE
+TROPICALE
+INCANTATA
+Una serata immersa in profumi esotici,
+luci soffuse e atmosfere che sanno di isole lontane
+Un viaggio nelle Hawaii senza lasciare la città
+HAWAIIAN GADGETS PER TUTTI
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
