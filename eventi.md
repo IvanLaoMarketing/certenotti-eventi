@@ -1,74 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 31/07/2026 05:53 (ora italiana)
+Ultimo aggiornamento: 31/07/2026 11:19 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## POOL DINNER SHOW ALBERTO VIO
-
-- **Data:** venerdi 31 luglio 2026
-- **Ora:** 11:00
-
-Dinner show raffinato
-Performance coinvolgenti
-Sguardi complici e giochi di seduzione
-Un venerdì dal fascino esclusivo
-dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
-tra luci soffuse, atmosfere intime e dettagli audaci
-per una notte da vivere senza filtri
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## POOL DINNER SHOW ALBERTO VIO
-
-- **Data:** venerdi 31 luglio 2026
-- **Ora:** 11:00
-
-Dinner show raffinato
-Performance coinvolgenti
-Sguardi complici e giochi di seduzione
-Un venerdì dal fascino esclusivo
-dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
-tra luci soffuse, atmosfere intime e dettagli audaci
-per una notte da vivere senza filtri
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
