@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 30/07/2026 21:54 (ora italiana)
+Ultimo aggiornamento: 31/07/2026 05:53 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -581,6 +581,72 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MORENASEX GAME
+
+- **Data:** domenica 9 agosto 2026
+- **Ora:** 10:00
+
+Questa sera l’atmosfera si scalda lentamente
+luci basse
+sguardi che parlano più delle parole
+e voglia di giocare senza limiti
+Tra sorrisi maliziosi, doppi sensi e provocazioni sussurrate all’orecchio,
+ogni incontro di sguardi è un invito a OSARE.
+Chi entra sa già che finirà per cedere alla tentazione…
+perché certe serate non si raccontano, si vivono sulla pelle.
+CORNER HOLE SPECIALE
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MORENASEX GAME
+
+- **Data:** domenica 9 agosto 2026
+- **Ora:** 10:00
+
+Questa sera l’atmosfera si scalda lentamente
+luci basse
+sguardi che parlano più delle parole
+e voglia di giocare senza limiti
+Tra sorrisi maliziosi, doppi sensi e provocazioni sussurrate all’orecchio,
+ogni incontro di sguardi è un invito a OSARE.
+Chi entra sa già che finirà per cedere alla tentazione…
+perché certe serate non si raccontano, si vivono sulla pelle.
+CORNER HOLE SPECIALE
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
