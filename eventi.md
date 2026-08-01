@@ -1,74 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/08/2026 10:35 (ora italiana)
+Ultimo aggiornamento: 01/08/2026 15:58 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## WHITE PARTY
-
-- **Data:** sabato 1 agosto 2026
-- **Ora:** 11:00
-
-Tutto nasce dal bianco…
-e  il dress code non è solo un dettaglio ma la regola assoluta
-Bianco puro fuori… ma dentro l’atmosfera si accende
-Il WHITE PARTY non è una semplice serata…
-è un gioco di seduzione totale
-dove il bianco non è innocenza.
-Ingresso selezionato
-Dress code TOTAL WHITE obbligatorio
-Lascia fuori i freni.
-WHITE PARTY si vive fino all’ultima vibrazione
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## WHITE PARTY
-
-- **Data:** sabato 1 agosto 2026
-- **Ora:** 11:00
-
-Tutto nasce dal bianco…
-e  il dress code non è solo un dettaglio ma la regola assoluta
-Bianco puro fuori… ma dentro l’atmosfera si accende
-Il WHITE PARTY non è una semplice serata…
-è un gioco di seduzione totale
-dove il bianco non è innocenza.
-Ingresso selezionato
-Dress code TOTAL WHITE obbligatorio
-Lascia fuori i freni.
-WHITE PARTY si vive fino all’ultima vibrazione
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
