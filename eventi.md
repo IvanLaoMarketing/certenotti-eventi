@@ -1,71 +1,11 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/08/2026 15:58 (ora italiana)
+Ultimo aggiornamento: 02/08/2026 10:38 (ora italiana)
 
 Prossimi eventi: 18
 
 ---
 
-## MISS MAGLIETTA BAGNATA
-
-- **Data:** domenica 2 agosto 2026
-- **Ora:** 10:00
-
-Preparati a una giornata di sole
-spruzzi d’acqua
-tette al vento
-musica e divertimento senza pause
-PREMIAZIONE MISS Maglietta Bagnata
-Un day party dove l’unica regola è godersi il piacere
-fino all’ultima goccia
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## MISS MAGLIETTA BAGNATA
-
-- **Data:** domenica 2 agosto 2026
-- **Ora:** 10:00
-
-Preparati a una giornata di sole
-spruzzi d’acqua
-tette al vento
-musica e divertimento senza pause
-PREMIAZIONE MISS Maglietta Bagnata
-Un day party dove l’unica regola è godersi il piacere
-fino all’ultima goccia
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
 ## DAY SPA
 
 - **Data:** lunedi 3 agosto 2026
@@ -575,6 +515,68 @@ Chi avrà la tecnica migliore ?
 Chi saprà sorprendere fino in fondo?
 Vieni a scoprirlo
 e lasciati tentare da una notte tutta da assaporare
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BACIO BAGNATO
+
+- **Data:** martedi 11 agosto 2026
+- **Ora:** 11:00
+
+UN POOL PARTY
+CHE VI LASCERÀ SENZA FIATO
+GIOCHI IN PISCINA
+MUSICA
+TRASGRESSIONE
+CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
+QUAL È IL SEGRETO PER DURARE DI PIÙ
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BACIO BAGNATO
+
+- **Data:** martedi 11 agosto 2026
+- **Ora:** 11:00
+
+UN POOL PARTY
+CHE VI LASCERÀ SENZA FIATO
+GIOCHI IN PISCINA
+MUSICA
+TRASGRESSIONE
+CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
+QUAL È IL SEGRETO PER DURARE DI PIÙ
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
