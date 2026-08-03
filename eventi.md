@@ -1,75 +1,11 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 02/08/2026 21:37 (ora italiana)
+Ultimo aggiornamento: 03/08/2026 12:07 (ora italiana)
 
 Prossimi eventi: 18
 
 ---
 
-## DAY SPA
-
-- **Data:** lunedi 3 agosto 2026
-- **Ora:** 11:00
-
-SPA & Seduzione – Summer Edition
-Il benessere si scalda, il desiderio si accende
-Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
-acqua, relax e un pizzico di trasgressione in privé
-Una giornata pensata per rigenerarti… e farti sognare
-Tutti i lunedì d’estate ci prendiamo cura di te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 3 agosto 2026
-- **Ora:** 11:00
-
-SPA & Seduzione – Summer Edition
-Il benessere si scalda, il desiderio si accende
-Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
-acqua, relax e un pizzico di trasgressione in privé
-Una giornata pensata per rigenerarti… e farti sognare
-Tutti i lunedì d’estate ci prendiamo cura di te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
 ## SENSUAL SPA
 
 - **Data:** martedi 4 agosto 2026
@@ -570,18 +506,62 @@ APERTI DA LUNEDÌ A DOMENICA
 - **Data:** martedi 11 agosto 2026
 - **Ora:** 11:00
 
-UN POOL PARTY
-CHE VI LASCERÀ SENZA FIATO
-GIOCHI IN PISCINA
-MUSICA
-TRASGRESSIONE
-CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
-QUAL È IL SEGRETO PER DURARE DI PIÙ
+---
+
+## ICE CREAM PARTY & NOCHE CALIENTE
+
+- **Data:** mercoledi 12 agosto 2026
+- **Ora:** 11:00
+
+Il gelato si scioglie…
+più lo lecchi… più ti viene voglia
+Preparati a gustare
+frutti proibiti
+e qualche sorpresa che cola lentamente
+Dress code:
+lingue fuori controllo
+coni duri da tenere in mano
+Vieni a sporcarti un po’… di crema
+Aufguss Notturni
+Dj Set
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
-PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## ICE CREAM PARTY & NOCHE CALIENTE
+
+- **Data:** mercoledi 12 agosto 2026
+- **Ora:** 11:00
+
+Il gelato si scioglie…
+più lo lecchi… più ti viene voglia
+Preparati a gustare
+frutti proibiti
+e qualche sorpresa che cola lentamente
+Dress code:
+lingue fuori controllo
+coni duri da tenere in mano
+Vieni a sporcarti un po’… di crema
+Aufguss Notturni
+Dj Set
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
