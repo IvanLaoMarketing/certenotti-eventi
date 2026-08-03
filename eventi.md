@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 03/08/2026 12:07 (ora italiana)
+Ultimo aggiornamento: 03/08/2026 17:19 (ora italiana)
 
 Prossimi eventi: 18
 
@@ -505,6 +505,30 @@ APERTI DA LUNEDÌ A DOMENICA
 
 - **Data:** martedi 11 agosto 2026
 - **Ora:** 11:00
+
+UN POOL PARTY
+CHE VI LASCERÀ SENZA FIATO
+GIOCHI IN PISCINA
+MUSICA
+TRASGRESSIONE
+CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
+QUAL È IL SEGRETO PER DURARE DI PIÙ
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
