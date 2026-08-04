@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 03/08/2026 22:00 (ora italiana)
+Ultimo aggiornamento: 04/08/2026 05:41 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -586,6 +586,70 @@ GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## FINALE KAMASUTRA CONTEST
+
+- **Data:** giovedi 13 agosto 2026
+- **Ora:** 11:00
+
+Evento esclusivo tra luci soffuse e atmosfera provocante
+Coppie in scena tra ironia e complicità
+movimenti che diventano linguaggio e sfida elegante.
+Tensione, gioco e sguardi dicono più delle parole
+Nessun giudizio, solo energia
+tra arte, sesso e provocazione
+PREMIAZIONE ALLE 6 COPPIE FINALISTE
+1000€ MONTEPREMI
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## FINALE KAMASUTRA CONTEST
+
+- **Data:** giovedi 13 agosto 2026
+- **Ora:** 11:00
+
+Evento esclusivo tra luci soffuse e atmosfera provocante
+Coppie in scena tra ironia e complicità
+movimenti che diventano linguaggio e sfida elegante.
+Tensione, gioco e sguardi dicono più delle parole
+Nessun giudizio, solo energia
+tra arte, sesso e provocazione
+PREMIAZIONE ALLE 6 COPPIE FINALISTE
+1000€ MONTEPREMI
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
