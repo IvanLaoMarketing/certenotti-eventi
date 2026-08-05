@@ -1,76 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 05/08/2026 05:36 (ora italiana)
+Ultimo aggiornamento: 05/08/2026 11:08 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## 3° KAMASUTRA CONTEST& NOCHE CALIENTE
-
-- **Data:** mercoledi 5 agosto 2026
-- **Ora:** 11:00
-
-Evento esclusivo tra luci soffuse e atmosfera provocante
-Coppie in scena tra ironia e complicità
-movimenti che diventano linguaggio e sfida elegante.
-Tensione, gioco e sguardi dicono più delle parole
-Nessun giudizio, solo energia
-tra arte, sesso e provocazione
-Aufguss Notturni
-Dj Set
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## 3° KAMASUTRA CONTEST& NOCHE CALIENTE
-
-- **Data:** mercoledi 5 agosto 2026
-- **Ora:** 11:00
-
-Evento esclusivo tra luci soffuse e atmosfera provocante
-Coppie in scena tra ironia e complicità
-movimenti che diventano linguaggio e sfida elegante.
-Tensione, gioco e sguardi dicono più delle parole
-Nessun giudizio, solo energia
-tra arte, sesso e provocazione
-Aufguss Notturni
-Dj Set
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
