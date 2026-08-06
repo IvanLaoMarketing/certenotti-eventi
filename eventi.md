@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 05/08/2026 16:36 (ora italiana)
+Ultimo aggiornamento: 06/08/2026 05:42 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -607,6 +607,90 @@ DRESS CODE SOLO SERALE
 Lei sexy e provocante con tacchi
 Lui elegante possibilmente in camicia
 Per pernottamento prenotare su www.dueholiday.eu
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MORENASEX OFFICIAL & FLUO PARTY
+
+- **Data:** sabato 15 agosto 2026
+- **Ora:** 11:00
+
+Una notte dove l’eleganza incontra la trasgressione
+gli sguardi si accendono, i desideri si liberano
+e ogni dettaglio è pensato per sedurvi
+Privé roventi
+Tentazioni ovunque
+Voglia di osare fino all’alba
+MorenaSex apre le porte al piacere
+alla seduzione e alla voglia di vivere una notte senza regole
+Performance by MY SHOW
+LA NOTTE SI VESTE DI FLUO
+Luci UV, colori accesi
+e neon per illuminare desideri nascosti
+DRESS CODE OBBLIGATORIO
+Fluo, trasparenze, body neon, accessori glow, makeup UV
+e tutto ciò che osa farsi notare.
+Più risplendi, più la notte sarà calda.
+Lasciati andare…
+MorenaSex ti aspetta
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MORENASEX OFFICIAL & FLUO PARTY
+
+- **Data:** sabato 15 agosto 2026
+- **Ora:** 11:00
+
+Una notte dove l’eleganza incontra la trasgressione
+gli sguardi si accendono, i desideri si liberano
+e ogni dettaglio è pensato per sedurvi
+Privé roventi
+Tentazioni ovunque
+Voglia di osare fino all’alba
+MorenaSex apre le porte al piacere
+alla seduzione e alla voglia di vivere una notte senza regole
+Performance by MY SHOW
+LA NOTTE SI VESTE DI FLUO
+Luci UV, colori accesi
+e neon per illuminare desideri nascosti
+DRESS CODE OBBLIGATORIO
+Fluo, trasparenze, body neon, accessori glow, makeup UV
+e tutto ciò che osa farsi notare.
+Più risplendi, più la notte sarà calda.
+Lasciati andare…
+MorenaSex ti aspetta
 GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
