@@ -1,72 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 06/08/2026 05:42 (ora italiana)
+Ultimo aggiornamento: 06/08/2026 11:08 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## SPA SOTTO LE STELLE
-
-- **Data:** giovedi 6 agosto 2026
-- **Ora:** 11:00
-
-Una notte diversa dal solito
-dove l’acqua calda incontra il cielo aperto
-e l’atmosfera si fa più intensa
-Vasche illuminate vapore nell’aria musica soft e luci basse
-Sauna, idromassaggio
-e percorsi relax per lasciarsi andare davvero… senza pensieri
-Una notte così non si racconta… si vive
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## SPA SOTTO LE STELLE
-
-- **Data:** giovedi 6 agosto 2026
-- **Ora:** 11:00
-
-Una notte diversa dal solito
-dove l’acqua calda incontra il cielo aperto
-e l’atmosfera si fa più intensa
-Vasche illuminate vapore nell’aria musica soft e luci basse
-Sauna, idromassaggio
-e percorsi relax per lasciarsi andare davvero… senza pensieri
-Una notte così non si racconta… si vive
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
