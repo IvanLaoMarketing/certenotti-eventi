@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 06/08/2026 16:37 (ora italiana)
+Ultimo aggiornamento: 07/08/2026 02:17 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -635,6 +635,70 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## COCOMERO PARTY & WATER WAR
+
+- **Data:** domenica 16 agosto 2026
+- **Ora:** 10:00
+
+FREDDA COME LA NEVE
+SUPER DISSETANTE
+DA LECCARSI I BAFFI
+Tantissima anguria
+da condividere con tutti
+per dare una spinta
+all’energia della serata
+E UNA WATER WAR PAZZESCA
+TRA SCHIZZI, URLA E VENDETTE ACQUATICHE
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## COCOMERO PARTY & WATER WAR
+
+- **Data:** domenica 16 agosto 2026
+- **Ora:** 10:00
+
+FREDDA COME LA NEVE
+SUPER DISSETANTE
+DA LECCARSI I BAFFI
+Tantissima anguria
+da condividere con tutti
+per dare una spinta
+all’energia della serata
+E UNA WATER WAR PAZZESCA
+TRA SCHIZZI, URLA E VENDETTE ACQUATICHE
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
