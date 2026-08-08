@@ -1,68 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 08/08/2026 04:23 (ora italiana)
+Ultimo aggiornamento: 08/08/2026 15:14 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## HAWAIIAN PARTY
-
-- **Data:** sabato 8 agosto 2026
-- **Ora:** 11:00
-
-VIBRANTE
-TROPICALE
-INCANTATA
-Una serata immersa in profumi esotici,
-luci soffuse e atmosfere che sanno di isole lontane
-Un viaggio nelle Hawaii senza lasciare la città
-HAWAIIAN GADGETS PER TUTTI
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## HAWAIIAN PARTY
-
-- **Data:** sabato 8 agosto 2026
-- **Ora:** 11:00
-
-VIBRANTE
-TROPICALE
-INCANTATA
-Una serata immersa in profumi esotici,
-luci soffuse e atmosfere che sanno di isole lontane
-Un viaggio nelle Hawaii senza lasciare la città
-HAWAIIAN GADGETS PER TUTTI
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
