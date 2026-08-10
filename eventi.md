@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 09/08/2026 21:03 (ora italiana)
+Ultimo aggiornamento: 10/08/2026 04:36 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -621,6 +621,78 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## TORNEO BEACH VOLLEY & NOCHE CALIENTE
+
+- **Data:** mercoledi 19 agosto 2026
+- **Ora:** 11:00
+
+Sabbia rovente, musica alta e adrenalina a mille
+il torneo di beach volley più atteso dell’estate è tornato
+Squadre NUDE pronte a sfidarsi sotto il sole
+tra schiacciate spettacolari, risate e voglia di divertirsi
+Un’atmosfera unica
+dove sport, energia e libertà si incontrano sulla spiaggia
+Nessuna regola se non una:
+dare il massimo e vivere la giornata fino all’ultimo punto
+Aufguss Notturni
+Dj Set
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## TORNEO BEACH VOLLEY & NOCHE CALIENTE
+
+- **Data:** mercoledi 19 agosto 2026
+- **Ora:** 11:00
+
+Sabbia rovente, musica alta e adrenalina a mille
+il torneo di beach volley più atteso dell’estate è tornato
+Squadre NUDE pronte a sfidarsi sotto il sole
+tra schiacciate spettacolari, risate e voglia di divertirsi
+Un’atmosfera unica
+dove sport, energia e libertà si incontrano sulla spiaggia
+Nessuna regola se non una:
+dare il massimo e vivere la giornata fino all’ultimo punto
+Aufguss Notturni
+Dj Set
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
