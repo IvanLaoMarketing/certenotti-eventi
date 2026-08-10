@@ -1,76 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 10/08/2026 10:06 (ora italiana)
+Ultimo aggiornamento: 10/08/2026 21:19 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## MISS GOLA PROFONDA
-
-- **Data:** lunedi 10 agosto 2026
-- **Ora:** 11:00
-
-Una sfida tutta da INGOIARE
-dove concentrazione, ritmo e una certa “ elasticità ”
-fanno la differenza.
-Una prova “ impegnativa ”
-una gara di abilità
-che premia chi sa… spingersi un po’ oltre
-Chi avrà la tecnica migliore ?
-Chi saprà sorprendere fino in fondo?
-Vieni a scoprirlo
-e lasciati tentare da una notte tutta da assaporare
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## MISS GOLA PROFONDA
-
-- **Data:** lunedi 10 agosto 2026
-- **Ora:** 11:00
-
-Una sfida tutta da INGOIARE
-dove concentrazione, ritmo e una certa “ elasticità ”
-fanno la differenza.
-Una prova “ impegnativa ”
-una gara di abilità
-che premia chi sa… spingersi un po’ oltre
-Chi avrà la tecnica migliore ?
-Chi saprà sorprendere fino in fondo?
-Vieni a scoprirlo
-e lasciati tentare da una notte tutta da assaporare
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
