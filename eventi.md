@@ -1,73 +1,11 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 11/08/2026 09:39 (ora italiana)
+Ultimo aggiornamento: 12/08/2026 04:47 (ora italiana)
 
 Prossimi eventi: 20
 
 ---
 
-## BACIO BAGNATO
-
-- **Data:** martedi 11 agosto 2026
-- **Ora:** 11:00
-
-UN POOL PARTY
-CHE VI LASCERÀ SENZA FIATO
-GIOCHI IN PISCINA
-MUSICA
-TRASGRESSIONE
-CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
-QUAL È IL SEGRETO PER DURARE DI PIÙ
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## BACIO BAGNATO
-
-- **Data:** martedi 11 agosto 2026
-- **Ora:** 11:00
-
-UN POOL PARTY
-CHE VI LASCERÀ SENZA FIATO
-GIOCHI IN PISCINA
-MUSICA
-TRASGRESSIONE
-CHI SAPRÀ RESISTERE A LUNGO SOTT’ACQUA
-QUAL È IL SEGRETO PER DURARE DI PIÙ
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
 ## ICE CREAM PARTY & NOCHE CALIENTE
 
 - **Data:** mercoledi 12 agosto 2026
@@ -699,6 +637,72 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW – ENRICO SAX
+
+- **Data:** venerdi 21 agosto 2026
+- **Ora:** 11:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW – ENRICO SAX
+
+- **Data:** venerdi 21 agosto 2026
+- **Ora:** 11:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
