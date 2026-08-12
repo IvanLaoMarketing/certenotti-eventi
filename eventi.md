@@ -1,76 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 12/08/2026 09:54 (ora italiana)
+Ultimo aggiornamento: 12/08/2026 15:50 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## ICE CREAM PARTY & NOCHE CALIENTE
-
-- **Data:** mercoledi 12 agosto 2026
-- **Ora:** 11:00
-
-Il gelato si scioglie…
-più lo lecchi… più ti viene voglia
-Preparati a gustare
-frutti proibiti
-e qualche sorpresa che cola lentamente
-Dress code:
-lingue fuori controllo
-coni duri da tenere in mano
-Vieni a sporcarti un po’… di crema
-Aufguss Notturni
-Dj Set
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## ICE CREAM PARTY & NOCHE CALIENTE
-
-- **Data:** mercoledi 12 agosto 2026
-- **Ora:** 11:00
-
-Il gelato si scioglie…
-più lo lecchi… più ti viene voglia
-Preparati a gustare
-frutti proibiti
-e qualche sorpresa che cola lentamente
-Dress code:
-lingue fuori controllo
-coni duri da tenere in mano
-Vieni a sporcarti un po’… di crema
-Aufguss Notturni
-Dj Set
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
