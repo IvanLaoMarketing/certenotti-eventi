@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 12/08/2026 21:29 (ora italiana)
+Ultimo aggiornamento: 13/08/2026 05:01 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -635,6 +635,64 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## OSTRICHE & BOLLICINE con Dj Ibiza
+
+- **Data:** sabato 22 agosto 2026
+- **Ora:** 11:00
+
+Ostriche fresche
+bollicine selezionate
+e un’atmosfera esclusiva nel nostro privé
+Lasciati trasportare dal sound del nostro DJ Ibiza
+vivi una serata all’insegna della trasgressione
+e regalati un’esperienza da vivere fino all’ultimo brindisi
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## OSTRICHE & BOLLICINE con Dj Ibiza
+
+- **Data:** sabato 22 agosto 2026
+- **Ora:** 11:00
+
+Ostriche fresche
+bollicine selezionate
+e un’atmosfera esclusiva nel nostro privé
+Lasciati trasportare dal sound del nostro DJ Ibiza
+vivi una serata all’insegna della trasgressione
+e regalati un’esperienza da vivere fino all’ultimo brindisi
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
