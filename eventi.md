@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 13/08/2026 21:28 (ora italiana)
+Ultimo aggiornamento: 14/08/2026 09:52 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -629,6 +629,78 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PRANZO DI FAMIGLIA & JAGER PARTY- I CONDOMINY
+
+- **Data:** domenica 23 agosto 2026
+- **Ora:** 10:00
+
+UNA DOMENICA DI GIOCHI & SEX
+By cpAdemar    I condominy
+Una giornata spensierata, frizzante e proibita
+Un pranzo in famiglia super vivace tra sorrisi, sguardi complici e nuove conoscenze.
+Lasciati andare, rompi la routine e riscopri il piacere della leggerezza
+E poi… si cambia atmosfera
+Jägermeister Party
+Un evento da perdere la testa con il nostro DJ resident
+che alza i battiti e abbassa le inibizioni…
+NO SQUIRT… NO PARTY
+Dalle 13:30 fino a quando l’energia non si esaurisce…
+o fino all’ultimo che resta in piedi
+chi c’era sa già che tipo di follia stiamo parlando
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO SERVITO
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PRANZO DI FAMIGLIA & JAGER PARTY- I CONDOMINY
+
+- **Data:** domenica 23 agosto 2026
+- **Ora:** 10:00
+
+UNA DOMENICA DI GIOCHI & SEX
+By cpAdemar    I condominy
+Una giornata spensierata, frizzante e proibita
+Un pranzo in famiglia super vivace tra sorrisi, sguardi complici e nuove conoscenze.
+Lasciati andare, rompi la routine e riscopri il piacere della leggerezza
+E poi… si cambia atmosfera
+Jägermeister Party
+Un evento da perdere la testa con il nostro DJ resident
+che alza i battiti e abbassa le inibizioni…
+NO SQUIRT… NO PARTY
+Dalle 13:30 fino a quando l’energia non si esaurisce…
+o fino all’ultimo che resta in piedi
+chi c’era sa già che tipo di follia stiamo parlando
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO SERVITO
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
