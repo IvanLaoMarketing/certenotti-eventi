@@ -1,72 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 16/08/2026 09:01 (ora italiana)
+Ultimo aggiornamento: 16/08/2026 15:02 (ora italiana)
 
-Prossimi eventi: 20
-
----
-
-## COCOMERO PARTY & WATER WAR
-
-- **Data:** domenica 16 agosto 2026
-- **Ora:** 10:00
-
-FREDDA COME LA NEVE
-SUPER DISSETANTE
-DA LECCARSI I BAFFI
-Tantissima anguria
-da condividere con tutti
-per dare una spinta
-all’energia della serata
-E UNA WATER WAR PAZZESCA
-TRA SCHIZZI, URLA E VENDETTE ACQUATICHE
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-
----
-
-## COCOMERO PARTY & WATER WAR
-
-- **Data:** domenica 16 agosto 2026
-- **Ora:** 10:00
-
-FREDDA COME LA NEVE
-SUPER DISSETANTE
-DA LECCARSI I BAFFI
-Tantissima anguria
-da condividere con tutti
-per dare una spinta
-all’energia della serata
-E UNA WATER WAR PAZZESCA
-TRA SCHIZZI, URLA E VENDETTE ACQUATICHE
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 18
 
 ---
 
