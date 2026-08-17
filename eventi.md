@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 16/08/2026 20:48 (ora italiana)
+Ultimo aggiornamento: 17/08/2026 03:56 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -574,6 +574,76 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## EXTREME PARTY UNA PER TUTTI..TUTTI PER UNA NOCHE CALIENTE
+
+- **Data:** mercoledi 26 agosto 2026
+- **Ora:** 14:00
+
+TRAVOLGENTI
+IMPREVEDIBILI
+INARRESTABILI
+LADY JAYNE & LA TENTAZIONE
+Qui non esistono mezze misure
+Non ti promettono sogni. Ti prendono per mano… e poi ti fanno dimenticare il controllo
+E quando il gioco si accende, sei tu a chiedere di non fermarlo
+GANG BANG dalle ore 18:00
+Aufguss Notturni
+Dj Set
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## EXTREME PARTY UNA PER TUTTI..TUTTI PER UNA NOCHE CALIENTE
+
+- **Data:** mercoledi 26 agosto 2026
+- **Ora:** 14:00
+
+TRAVOLGENTI
+IMPREVEDIBILI
+INARRESTABILI
+LADY JAYNE & LA TENTAZIONE
+Qui non esistono mezze misure
+Non ti promettono sogni. Ti prendono per mano… e poi ti fanno dimenticare il controllo
+E quando il gioco si accende, sei tu a chiedere di non fermarlo
+GANG BANG dalle ore 18:00
+Aufguss Notturni
+Dj Set
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
