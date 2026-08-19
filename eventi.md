@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 18/08/2026 20:58 (ora italiana)
+Ultimo aggiornamento: 19/08/2026 03:54 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -585,6 +585,70 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW – ALBERTO VIO
+
+- **Data:** venerdi 28 agosto 2026
+- **Ora:** 14:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW – ALBERTO VIO
+
+- **Data:** venerdi 28 agosto 2026
+- **Ora:** 14:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
