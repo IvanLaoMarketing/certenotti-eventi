@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 19/08/2026 20:55 (ora italiana)
+Ultimo aggiornamento: 20/08/2026 03:53 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -577,6 +577,76 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SUMMER IBIZA
+
+- **Data:** sabato 29 agosto 2026
+- **Ora:** 11:00
+
+Quando cala la notte, ogni regola lascia spazio al desiderio
+Summer Ibiza accende i sensi con un’atmosfera esclusiva
+e un mix irresistibile di fascino, eleganza e seduzione.
+Lasciati conquistare da una notte dove sguardi, emozioni e adrenalina
+si fondono in un’esperienza
+pensata per chi ama trasgredire
+Cocktail e DJ set fino a tarda notte
+Atmosfera riservata, elegante e sensuale
+Un viaggio tra seduzione, libertà e trasgressione
+E la sorpresa finale?
+Tra i partecipanti verrà estratto un fortunato vincitore
+che si aggiudicherà un soggiorno per 2 persone a Ibiza di 2 giorni e 1 notte
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SUMMER IBIZA
+
+- **Data:** sabato 29 agosto 2026
+- **Ora:** 11:00
+
+Quando cala la notte, ogni regola lascia spazio al desiderio
+Summer Ibiza accende i sensi con un’atmosfera esclusiva
+e un mix irresistibile di fascino, eleganza e seduzione.
+Lasciati conquistare da una notte dove sguardi, emozioni e adrenalina
+si fondono in un’esperienza
+pensata per chi ama trasgredire
+Cocktail e DJ set fino a tarda notte
+Atmosfera riservata, elegante e sensuale
+Un viaggio tra seduzione, libertà e trasgressione
+E la sorpresa finale?
+Tra i partecipanti verrà estratto un fortunato vincitore
+che si aggiudicherà un soggiorno per 2 persone a Ibiza di 2 giorni e 1 notte
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
