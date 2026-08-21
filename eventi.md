@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 20/08/2026 15:13 (ora italiana)
+Ultimo aggiornamento: 21/08/2026 03:59 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -583,6 +583,66 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## AUFGUSS DAYGIORNATA TINDER
+
+- **Data:** domenica 30 agosto 2026
+- **Ora:** 10:00
+
+Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
+Super SPA & AUFGUSS con Maestri Professionisti
+Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
+Coppie Under 45 OSPITI
+Lui + Lei = 70 OSPITI
+Diretta. Calda. Senza giri di parole.
+Vieni a scaldarti insieme a noi
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## AUFGUSS DAYGIORNATA TINDER
+
+- **Data:** domenica 30 agosto 2026
+- **Ora:** 10:00
+
+Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
+Super SPA & AUFGUSS con Maestri Professionisti
+Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
+Coppie Under 45 OSPITI
+Lui + Lei = 70 OSPITI
+Diretta. Calda. Senza giri di parole.
+Vieni a scaldarti insieme a noi
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
