@@ -65,6 +65,7 @@ def parse_eventi_page(page: str) -> list[dict]:
         re.S,
     )
     eventi = []
+    visti = set()
     for item in items:
         m_id = re.search(r"e-loop-item-(\d+)", item)
         m_link = re.search(r'<a href="(https://www\.certenotti\.eu/[^"]+)"', item)
@@ -73,6 +74,14 @@ def parse_eventi_page(page: str) -> list[dict]:
         if not (m_id and m_title and m_date):
             continue
         giorno, ora = m_date.group(1), m_date.group(2)
+        # La griglia Elementor rende ogni evento piu' di una volta (varianti
+        # desktop e mobile dello stesso loop-item). Senza questo controllo
+        # ogni evento finiva due volte in eventi.md, raddoppiando il payload
+        # spedito all'assistente vocale a ogni turno di chiamata.
+        chiave = (m_id.group(1), giorno, ora)
+        if chiave in visti:
+            continue
+        visti.add(chiave)
         eventi.append(
             {
                 "id": m_id.group(1),
@@ -102,7 +111,12 @@ def main() -> None:
 
     eventi.sort(key=lambda e: e["datetime"])
     adesso = datetime.now(TZ_IT)
-    futuri = [e for e in eventi if e["datetime"] >= adesso] or eventi
+    # Il confronto va fatto con l'inizio della giornata, non con l'ora esatta:
+    # e["datetime"] e' l'ora di INIZIO dell'evento, quindi con >= adesso un
+    # evento che parte alle 14:00 usciva dalla lista alle 14:01 e l'assistente
+    # vocale rispondeva che oggi non c'era niente mentre era in corso.
+    inizio_oggi = adesso.replace(hour=0, minute=0, second=0, microsecond=0)
+    futuri = [e for e in eventi if e["datetime"] >= inizio_oggi] or eventi
 
     out = [
         "# Eventi in programma - Certe Notti Spa & Privee",
