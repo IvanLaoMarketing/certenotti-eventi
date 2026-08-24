@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/08/2026 20:50 (ora italiana)
+Ultimo aggiornamento: 24/08/2026 03:59 (ora italiana)
 
-Prossimi eventi: 18
+Prossimi eventi: 20
 
 ---
 
@@ -564,6 +564,72 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MERCOLEDÌ INDIAVOLATO NOCHE CALIENTE
+
+- **Data:** mercoledi 2 settembre 2026
+- **Ora:** 14:00
+
+La temperatura sale… e il divertimento anche.
+Preparati a vivere una Noche Caliente dove il ritmo della musica incontra il calore della sauna.
+DJ Set con sonorità travolgenti
+Aufguss notturni, intensi e ricchi di emozioni
+Un’atmosfera seducente, profumi avvolgenti e un’energia che ti farà dimenticare la routine.
+Lasciati conquistare dal calore, lasciati trasportare dal ritmo…
+e vivi il mercoledì più hot della settimana.
+Calore, musica e passione ti aspettano
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MERCOLEDÌ INDIAVOLATO NOCHE CALIENTE
+
+- **Data:** mercoledi 2 settembre 2026
+- **Ora:** 14:00
+
+La temperatura sale… e il divertimento anche.
+Preparati a vivere una Noche Caliente dove il ritmo della musica incontra il calore della sauna.
+DJ Set con sonorità travolgenti
+Aufguss notturni, intensi e ricchi di emozioni
+Un’atmosfera seducente, profumi avvolgenti e un’energia che ti farà dimenticare la routine.
+Lasciati conquistare dal calore, lasciati trasportare dal ritmo…
+e vivi il mercoledì più hot della settimana.
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
