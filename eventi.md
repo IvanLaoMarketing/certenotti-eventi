@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 26/08/2026 22:05 (ora italiana)
+Ultimo aggiornamento: 27/08/2026 11:54 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## EXTREME PARTY UNA PER TUTTI..TUTTI PER UNA NOCHE CALIENTE
-
-- **Data:** mercoledi 26 agosto 2026
-- **Ora:** 14:00
-
-TRAVOLGENTI
-IMPREVEDIBILI
-INARRESTABILI
-LADY JAYNE & LA TENTAZIONE
-Qui non esistono mezze misure
-Non ti promettono sogni. Ti prendono per mano… e poi ti fanno dimenticare il controllo
-E quando il gioco si accende, sei tu a chiedere di non fermarlo
-GANG BANG dalle ore 18:00
-Aufguss Notturni
-Dj Set
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -323,6 +288,39 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## WHITE LINGERIE PARTY & PAELLA
+
+- **Data:** sabato 5 settembre 2026
+- **Ora:** 11:00
+
+ELEGANZA
+FASCINO
+DESIDERIO
+Pizzi, seta e trasparenze si fondono in un’atmosfera raffinata,
+dove ogni dettaglio è pensato per sedurre e sorprendere.
+Il dress code è semplice ma irresistibile.
+Ad attenderti anche un irresistibile Paella Party
+con il profumo e i sapori della tradizione spagnola, per rendere la serata ancora più speciale e
+condividere il piacere della buona tavola in un clima di festa e divertimento.
+White Lingerie & Paella Party… una notte tutta da assaporare.
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
