@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 28/08/2026 00:18 (ora italiana)
+Ultimo aggiornamento: 28/08/2026 13:28 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -290,6 +290,40 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SANGRIA PARTY& TORNEO DI BEACH VOLLEY
+
+- **Data:** domenica 6 settembre 2026
+- **Ora:** 10:00
+
+Il sole accende l’atmosfera, la sangria rinfresca i sensi
+e la giornata si trasforma in una domenica piccante
+Dedicata a chi ama le belle compagnie, i brindisi senza fretta
+la musica coinvolgente e un’atmosfera ricca di complicità
+Torneo di beach volley aperto a tutti:
+energia, gioco di squadra e tanto divertimento per animare la giornata.
+Sangria fresca e cocktail
+Musica
+Relax, divertimento e sesso
+Lasciati conquistare dal gusto dell’estate e vivi il tuo Sangria Party
+fino all’ultimo brindisi.
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
