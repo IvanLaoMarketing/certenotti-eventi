@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/09/2026 00:53 (ora italiana)
+Ultimo aggiornamento: 01/09/2026 07:15 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -282,6 +282,41 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PERICOLOSE E BOLLENTI AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 9 settembre 2026
+- **Ora:** 14:00
+
+Una serata dedicata a coppie e single audaci,
+a chi ama lasciarsi sorprendere, rompere la routine
+e vivere nuove emozioni in un’atmosfera elegante, coinvolgente e ricca di complicità.
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
