@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/09/2026 18:42 (ora italiana)
+Ultimo aggiornamento: 01/09/2026 23:05 (ora italiana)
 
 Prossimi eventi: 10
 
@@ -105,7 +105,7 @@ APERTI DA LUNEDÌ A DOMENICA
 
 ---
 
-## POOL DINNER SHOW SERATA BLACK MEN
+## POOL DINNER SHOW LIS’LIPAUX & SERATA BLACK MEN
 
 - **Data:** venerdi 4 settembre 2026
 - **Ora:** 14:00
