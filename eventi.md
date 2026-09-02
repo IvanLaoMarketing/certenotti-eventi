@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/09/2026 23:05 (ora italiana)
+Ultimo aggiornamento: 02/09/2026 13:23 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SPA & RELAX
-
-- **Data:** martedi 1 settembre 2026
-- **Ora:** 14:00
-
-Il tempo si ferma… e si accende il desiderio
-Un rituale pensato per abbandonarti al piacere del relax
-tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
-Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
-dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
-Ogni martedì siamo al servizio del tuo benessere…
-e dei tuoi desideri più profondi
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -321,6 +289,36 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## INSTINCT SPA
+
+- **Data:** giovedi 10 settembre 2026
+- **Ora:** 14:00
+
+Una notte esclusiva dove fascino e mistero si incontrano in un ambiente raffinato
+Luci soffuse, musica coinvolgente, area wellness e un’accoglienza curata nei minimi
+dettagli faranno da cornice alla vostra serata per renderla
+trasgressiva e indimenticabile
+INSTINCT SPA
+Segui il tuo istinto. Il resto VIVILO.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
