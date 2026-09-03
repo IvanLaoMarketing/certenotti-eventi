@@ -1,41 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 02/09/2026 23:06 (ora italiana)
+Ultimo aggiornamento: 03/09/2026 06:37 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MERCOLEDÌ INDIAVOLATO NOCHE CALIENTE
-
-- **Data:** mercoledi 2 settembre 2026
-- **Ora:** 14:00
-
-La temperatura sale… e il divertimento anche.
-Preparati a vivere una Noche Caliente dove il ritmo della musica incontra il calore della sauna.
-DJ Set con sonorità travolgenti
-Aufguss notturni, intensi e ricchi di emozioni
-Un’atmosfera seducente, profumi avvolgenti e un’energia che ti farà dimenticare la routine.
-Lasciati conquistare dal calore, lasciati trasportare dal ritmo…
-e vivi il mercoledì più hot della settimana.
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -324,6 +291,38 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW
+
+- **Data:** venerdi 11 settembre 2026
+- **Ora:** 14:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
