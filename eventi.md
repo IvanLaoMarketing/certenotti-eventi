@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 03/09/2026 23:05 (ora italiana)
+Ultimo aggiornamento: 04/09/2026 06:38 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## RISVEGLIA I SENSI SENSUAL SPA
-
-- **Data:** giovedi 3 settembre 2026
-- **Ora:** 14:00
-
-Una serata dove i sensi si risvegliano lentamente
-e ogni istante invita a lasciarsi trasportare dal desiderio e dalla complicità.
-Luci soffuse vapore nell’aria musica avvolgente
-e un’atmosfera che accende emozioni, sguardi e nuove sensazioni
-Sauna, idromassaggio e bagno turco
-per abbandonare ogni pensiero e vivere il piacere del momento.
-Ogni dettaglio è un invito a rallentare…
-a sfiorarsi, sorridersi e lasciarsi guidare dalle emozioni.
-Una notte dedicata al risveglio dei sensi,
-dove il benessere incontra la passione e ogni emozione si vive fino in fondo.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -323,6 +289,41 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MISS TETTE – MONTEPREMI 1000€
+
+- **Data:** sabato 12 settembre 2026
+- **Ora:** 11:00
+
+Piccolo, prosperoso o scolpito…
+qui ogni décolleté si prende la scena!
+Ogni forma ha il suo fascino, ogni donna ha il suo seno.
+Porta sul palco il tuo lato più frizzante,
+sfoggia il tuo sorriso migliore e conquista il pubblico
+con simpatia, ironia e un pizzico di sensualità
+MONTEPREMI 1000€ per le finaliste!
+Una serata di divertimento, sensualità e risate
+dove ogni donna può far brillare il suo décolleté
+COPPIE OMAGGIO con PARTECIPO e LAST su MorenaSex e A69
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
