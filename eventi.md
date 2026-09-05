@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 04/09/2026 22:47 (ora italiana)
+Ultimo aggiornamento: 05/09/2026 06:35 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## POOL DINNER SHOW LIS’LIPAUX & SERATA BLACK MEN
-
-- **Data:** venerdi 4 settembre 2026
-- **Ora:** 14:00
-
-Dinner show raffinato
-Performance coinvolgenti
-Sguardi complici e giochi di seduzione
-Un venerdì dal fascino esclusivo
-dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
-tra luci soffuse, atmosfere intime e dettagli audaci
-per una notte da vivere senza filtri
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-Dalle 23:30 la tanto attesa SERATA BLACK
-by Luca Ferrero & Ambra
-Black Reunion per chi sa reggere le emozioni forti
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -318,6 +283,40 @@ COPPIE OMAGGIO con PARTECIPO e LAST su MorenaSex e A69
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MISTER BIG DICK & GIORNATA TINDER
+
+- **Data:** domenica 13 settembre 2026
+- **Ora:** 10:00
+
+SFACCIATAGGINE
+MISURE CHE SI FANNO NOTARE
+LINGERIE DA TOGLIERE IL FIATO
+UNA GIURIA INTERAMENTE AL FEMMINILE
+DECIDERÀ CHI AVRÀ IL FASCINO PIÙ IRRESISTIBILE
+ENTRA IN GIOCO ANCHE TU
+VOTA IL TUO PREFERITO… E LASCIA PARLARE L’ISTINTO.
+I TRE FINALISTI SARANNO PREMIATI
+PERCHÉ LA SEDUZIONE HA I SUOI VINCITORI
+Coppie Under 45 OSPITI
+Lui + Lei = 70 OSPITI
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
