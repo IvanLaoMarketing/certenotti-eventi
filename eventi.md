@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 06/09/2026 22:27 (ora italiana)
+Ultimo aggiornamento: 07/09/2026 06:48 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SANGRIA PARTY& TORNEO DI BEACH VOLLEY
-
-- **Data:** domenica 6 settembre 2026
-- **Ora:** 10:00
-
-Il sole accende l’atmosfera, la sangria rinfresca i sensi
-e la giornata si trasforma in una domenica piccante
-Dedicata a chi ama le belle compagnie, i brindisi senza fretta
-la musica coinvolgente e un’atmosfera ricca di complicità
-Torneo di beach volley aperto a tutti:
-energia, gioco di squadra e tanto divertimento per animare la giornata.
-Sangria fresca e cocktail
-Musica
-Relax, divertimento e sesso
-Lasciati conquistare dal gusto dell’estate e vivi il tuo Sangria Party
-fino all’ultimo brindisi.
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -312,6 +278,43 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BOCCA CALIENTE GLORY HOLE PARTY AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 16 settembre 2026
+- **Ora:** 14:00
+
+Quando il desiderio incontra la trasgressione
+nasce Bocca Caliente .
+Per chi ama lasciarsi sedurre dai giochi di sguardi e dal fascino della seduzione
+Qui nulla è scontato:
+il mistero, la complicità e l’attrazione diventano i veri protagonisti
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
