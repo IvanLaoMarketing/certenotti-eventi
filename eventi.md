@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 07/09/2026 23:33 (ora italiana)
+Ultimo aggiornamento: 08/09/2026 06:43 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 7 settembre 2026
-- **Ora:** 14:00
-
-SPA & Seduzione – Summer Edition
-Il benessere si scalda, il desiderio si accende
-Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
-acqua, relax e un pizzico di trasgressione in privé
-Una giornata pensata per rigenerarti… e farti sognare
-Tutti i lunedì d’estate ci prendiamo cura di te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -319,6 +288,37 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## EXCLUSIVE SPA
+
+- **Data:** giovedi 17 settembre 2026
+- **Ora:** 14:00
+
+Quando il benessere incontra la seduzione, nasce un’esperienza che lascia il segno.
+Una location esclusiva, avvolta da luci soffuse, musica sensuale e un’atmosfera magnetica,
+dove ogni dettaglio invita a lasciarsi trasportare dal fascino della notte.
+Tra sauna, bagno turco, idromassaggio e aree relax, il confine tra relax e tentazione si assottiglia,
+regalando emozioni intense in un ambiente raffinato e riservato.
+Sguardi che si incrociano, sorrisi complici, eleganza, mistero e un pizzico di trasgressione rendono
+questa serata un’occasione unica per vivere un’esperienza coinvolgente e indimenticabile.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
