@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 08/09/2026 23:13 (ora italiana)
+Ultimo aggiornamento: 09/09/2026 06:47 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SPA & RELAX
-
-- **Data:** martedi 8 settembre 2026
-- **Ora:** 14:00
-
-Il tempo si ferma… e si accende il desiderio
-Un rituale pensato per abbandonarti al piacere del relax
-tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
-Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
-dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
-Ogni martedì siamo al servizio del tuo benessere…
-e dei tuoi desideri più profondi
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -324,6 +292,38 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POOL DINNER SHOW
+
+- **Data:** venerdi 18 settembre 2026
+- **Ora:** 14:00
+
+Dinner show raffinato
+Performance coinvolgenti
+Sguardi complici e giochi di seduzione
+Un venerdì dal fascino esclusivo
+dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
+tra luci soffuse, atmosfere intime e dettagli audaci
+per una notte da vivere senza filtri
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
