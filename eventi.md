@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 09/09/2026 22:58 (ora italiana)
+Ultimo aggiornamento: 10/09/2026 06:49 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## PERICOLOSE E BOLLENTI AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 9 settembre 2026
-- **Ora:** 14:00
-
-Una serata dedicata a coppie e single audaci,
-a chi ama lasciarsi sorprendere, rompere la routine
-e vivere nuove emozioni in un’atmosfera elegante, coinvolgente e ricca di complicità.
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -324,6 +289,41 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MISS ABBRONZATISSIMA
+
+- **Data:** sabato 19 settembre 2026
+- **Ora:** 11:00
+
+Lasciati conquistare da un evento dove fascino, carisma e seduzione sono protagonisti
+Le concorrenti sfileranno tra luci soffuse musica coinvolgente
+e un’atmosfera carica di emozioni
+dando vita a uno spettacolo elegante, provocante e ricco di stile.
+Una notte pensata per chi ama vivere esperienze fuori dall’ordinario, tra sorrisi, complicità e
+un pizzico di trasgressione
+Chi conquisterà il titolo di Miss Abbronzatissima ?
+Vieni a scoprirlo, scegli la tua preferita e preparati a vivere una serata intensa,
+intrigante e indimenticabile
+COPPIE OMAGGIO con PARTECIPO su MorenaSex dalle 20:30
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
