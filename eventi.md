@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 10/09/2026 18:28 (ora italiana)
+Ultimo aggiornamento: 11/09/2026 06:46 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## INSTINCT SPA
-
-- **Data:** giovedi 10 settembre 2026
-- **Ora:** 14:00
-
-Una notte esclusiva dove fascino e mistero si incontrano in un ambiente raffinato
-Luci soffuse, musica coinvolgente, area wellness e un’accoglienza curata nei minimi
-dettagli faranno da cornice alla vostra serata per renderla
-trasgressiva e indimenticabile
-INSTINCT SPA
-Segui il tuo istinto. Il resto VIVILO.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -318,6 +288,36 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex dalle 20:30
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SPECIALE AUFGUSS DAY
+
+- **Data:** domenica 20 settembre 2026
+- **Ora:** 10:00
+
+Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
+Super SPA & AUFGUSS con Maestri Professionisti
+Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
+Diretta. Calda. Senza giri di parole.
+Vieni a scaldarti insieme a noi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
