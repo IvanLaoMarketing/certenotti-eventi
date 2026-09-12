@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 11/09/2026 13:27 (ora italiana)
+Ultimo aggiornamento: 12/09/2026 06:40 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## POOL DINNER SHOW
-
-- **Data:** venerdi 11 settembre 2026
-- **Ora:** 14:00
-
-Dinner show raffinato
-Performance coinvolgenti
-Sguardi complici e giochi di seduzione
-Un venerdì dal fascino esclusivo
-dove eleganza, trasgressione e sensualità si incontrano a bordo piscina
-tra luci soffuse, atmosfere intime e dettagli audaci
-per una notte da vivere senza filtri
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -324,6 +292,37 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 21 settembre 2026
+- **Ora:** 14:00
+
+SPA & Seduzione – Summer Edition
+Il benessere si scalda, il desiderio si accende
+Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
+acqua, relax e un pizzico di trasgressione in privé
+Una giornata pensata per rigenerarti… e farti sognare
+Tutti i lunedì d’estate ci prendiamo cura di te
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
