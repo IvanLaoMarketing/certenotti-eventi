@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 12/09/2026 22:37 (ora italiana)
+Ultimo aggiornamento: 13/09/2026 06:53 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MISS TETTE – MONTEPREMI 1000€
-
-- **Data:** sabato 12 settembre 2026
-- **Ora:** 11:00
-
-Piccolo, prosperoso o scolpito…
-qui ogni décolleté si prende la scena!
-Ogni forma ha il suo fascino, ogni donna ha il suo seno.
-Porta sul palco il tuo lato più frizzante,
-sfoggia il tuo sorriso migliore e conquista il pubblico
-con simpatia, ironia e un pizzico di sensualità
-MONTEPREMI 1000€ per le finaliste!
-Una serata di divertimento, sensualità e risate
-dove ogni donna può far brillare il suo décolleté
-COPPIE OMAGGIO con PARTECIPO e LAST su MorenaSex e A69
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -314,6 +279,38 @@ Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
 acqua, relax e un pizzico di trasgressione in privé
 Una giornata pensata per rigenerarti… e farti sognare
 Tutti i lunedì d’estate ci prendiamo cura di te
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SPA & RELAX
+
+- **Data:** martedi 22 settembre 2026
+- **Ora:** 14:00
+
+Il tempo si ferma… e si accende il desiderio
+Un rituale pensato per abbandonarti al piacere del relax
+tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
+Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
+dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
+Ogni martedì siamo al servizio del tuo benessere…
+e dei tuoi desideri più profondi
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
