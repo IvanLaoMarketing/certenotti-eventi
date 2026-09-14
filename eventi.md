@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 13/09/2026 22:53 (ora italiana)
+Ultimo aggiornamento: 14/09/2026 07:02 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MISTER BIG DICK & GIORNATA TINDER
-
-- **Data:** domenica 13 settembre 2026
-- **Ora:** 10:00
-
-SFACCIATAGGINE
-MISURE CHE SI FANNO NOTARE
-LINGERIE DA TOGLIERE IL FIATO
-UNA GIURIA INTERAMENTE AL FEMMINILE
-DECIDERÀ CHI AVRÀ IL FASCINO PIÙ IRRESISTIBILE
-ENTRA IN GIOCO ANCHE TU
-VOTA IL TUO PREFERITO… E LASCIA PARLARE L’ISTINTO.
-I TRE FINALISTI SARANNO PREMIATI
-PERCHÉ LA SEDUZIONE HA I SUOI VINCITORI
-Coppie Under 45 OSPITI
-Lui + Lei = 70 OSPITI
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -311,6 +277,45 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## FEMMINE INSAZIABILI & DESIDERIO CUCKOLD AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 23 settembre 2026
+- **Ora:** 14:00
+
+Quando Lei ha fame… è difficile dirle di no
+Lei esaudisce i suoi desideri,
+mentre lui osserva in silenzio, rapito da ogni istante
+Ogni sguardo, ogni carezza, ogni sorriso si svolge davanti ai suoi occhi,
+rendendo l’attesa ancora più intensa.
+A lui non resta che lasciarsi trasportare dallo spettacolo, assaporando ogni emozione.
+Osservare, immaginare, desiderare… e vivere il momento fino in fondo.
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
