@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 14/09/2026 23:52 (ora italiana)
+Ultimo aggiornamento: 15/09/2026 06:58 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 14 settembre 2026
-- **Ora:** 14:00
-
-SPA & Seduzione – Summer Edition
-Il benessere si scalda, il desiderio si accende
-Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
-acqua, relax e un pizzico di trasgressione in privé
-Una giornata pensata per rigenerarti… e farti sognare
-Tutti i lunedì d’estate ci prendiamo cura di te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -320,6 +289,37 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SCANDALOSO RELAX SPA
+
+- **Data:** giovedi 24 settembre 2026
+- **Ora:** 14:00
+
+Quando il desiderio prende il sopravvento sulla ragione, la notte cambia volto.
+Varca la soglia di un luogo dove ogni regola sembra dissolversi tra luci soffuse ,
+profumi avvolgenti e una colonna sonora capace di accendere i sensi.
+Qui il benessere è solo l’inizio…
+Sauna , bagno turco , idromassaggio e aree relax diventano il palcoscenico di un
+gioco sottile fatto di sguardi intensi, contatti sfiorati e fantasie che prendono forma.
+Ogni angolo invita ad avvicinarsi, ogni istante promette qualcosa di inatteso.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
