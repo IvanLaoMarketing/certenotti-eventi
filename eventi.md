@@ -1,45 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 16/09/2026 23:21 (ora italiana)
+Ultimo aggiornamento: 17/09/2026 06:57 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## BOCCA CALIENTE GLORY HOLE PARTY AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 16 settembre 2026
-- **Ora:** 14:00
-
-Quando il desiderio incontra la trasgressione
-nasce Bocca Caliente .
-Per chi ama lasciarsi sedurre dai giochi di sguardi e dal fascino della seduzione
-Qui nulla è scontato:
-il mistero, la complicità e l’attrazione diventano i veri protagonisti
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -325,6 +288,43 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BASIC INSTINCT – Sotto il Vestito… Niente
+
+- **Data:** sabato 26 settembre 2026
+- **Ora:** 11:00
+
+Hai il coraggio di giocare con la fantasia?
+Questa notte il dress code è una provocazione,
+lo stile è un’arma e lo sguardo vale più di mille parole.
+Entra in scena con il tuo outfit più audace.
+Lascia immaginare più di quanto mostri.
+Accendi la notte con il tuo fascino.
+Un’atmosfera intensa, musica travolgente e un contest
+dove sicurezza, carisma e sensualità saranno i veri protagonisti.
+In palio premi esclusivi per:
+Migliore Interpretazione – la performance più intensa, creativa e coinvolgente.
+Mostra il tuo stile.
+Gioca con il mistero.
+Lascia il segno.
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
 PRIVÉ
 ~~~~
 Info costi
