@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 17/09/2026 23:26 (ora italiana)
+Ultimo aggiornamento: 18/09/2026 06:49 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## EXCLUSIVE SPA
-
-- **Data:** giovedi 17 settembre 2026
-- **Ora:** 14:00
-
-Quando il benessere incontra la seduzione, nasce un’esperienza che lascia il segno.
-Una location esclusiva, avvolta da luci soffuse, musica sensuale e un’atmosfera magnetica,
-dove ogni dettaglio invita a lasciarsi trasportare dal fascino della notte.
-Tra sauna, bagno turco, idromassaggio e aree relax, il confine tra relax e tentazione si assottiglia,
-regalando emozioni intense in un ambiente raffinato e riservato.
-Sguardi che si incrociano, sorrisi complici, eleganza, mistero e un pizzico di trasgressione rendono
-questa serata un’occasione unica per vivere un’esperienza coinvolgente e indimenticabile.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -319,6 +288,38 @@ Gioca con il mistero.
 Lascia il segno.
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA A BUFFET
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PRANZO con DJ IBIZA – CAPENSANTE & BOLLICINE
+
+- **Data:** domenica 27 settembre 2026
+- **Ora:** 10:00
+
+Il peccato inizia a tavola
+e il confine tra pranzo, festa e pura trasgressione si fa sempre più sottile
+S ole piscina musica e bollicine
+Un’atmosfera calda e provocante,
+fatta di sguardi sensualità e voglia di giocare senza freni
+Una giornata pensata per chi ama giocare con la seduzione,
+osare e vivere il piacere senza tabù .
+Vieni per il pranzo. Resta per l’atmosfera.
+Lasciati conquistare dalla notte.
+GIARDINO ESTIVO SOLARIUM   SPA
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
