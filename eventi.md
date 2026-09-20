@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 19/09/2026 22:45 (ora italiana)
+Ultimo aggiornamento: 20/09/2026 06:58 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MISS ABBRONZATISSIMA
-
-- **Data:** sabato 19 settembre 2026
-- **Ora:** 11:00
-
-Lasciati conquistare da un evento dove fascino, carisma e seduzione sono protagonisti
-Le concorrenti sfileranno tra luci soffuse musica coinvolgente
-e un’atmosfera carica di emozioni
-dando vita a uno spettacolo elegante, provocante e ricco di stile.
-Una notte pensata per chi ama vivere esperienze fuori dall’ordinario, tra sorrisi, complicità e
-un pizzico di trasgressione
-Chi conquisterà il titolo di Miss Abbronzatissima ?
-Vieni a scoprirlo, scegli la tua preferita e preparati a vivere una serata intensa,
-intrigante e indimenticabile
-COPPIE OMAGGIO con PARTECIPO su MorenaSex dalle 20:30
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -316,6 +281,38 @@ Lasciati avvolgere da un’atmosfera estiva, leggera e irresistibile:
 acqua, relax e un pizzico di trasgressione in privé
 Una giornata pensata per rigenerarti… e farti sognare
 Tutti i lunedì d’estate ci prendiamo cura di te
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SPA & RELAX
+
+- **Data:** martedi 29 settembre 2026
+- **Ora:** 14:00
+
+Il tempo si ferma… e si accende il desiderio
+Un rituale pensato per abbandonarti al piacere del relax
+tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
+Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
+dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
+Ogni martedì siamo al servizio del tuo benessere…
+e dei tuoi desideri più profondi
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
