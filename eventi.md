@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 20/09/2026 22:52 (ora italiana)
+Ultimo aggiornamento: 21/09/2026 07:02 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SPECIALE AUFGUSS DAY
-
-- **Data:** domenica 20 settembre 2026
-- **Ora:** 10:00
-
-Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
-Super SPA & AUFGUSS con Maestri Professionisti
-Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
-Diretta. Calda. Senza giri di parole.
-Vieni a scaldarti insieme a noi
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -313,6 +283,43 @@ Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
 dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
 Ogni martedì siamo al servizio del tuo benessere…
 e dei tuoi desideri più profondi
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+GIARDINO ESTIVO SOLARIUM   SPA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## POMPINI AL BUIO AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 30 settembre 2026
+- **Ora:** 14:00
+
+Nel buio tutto cambia.
+Le distanze si accorciano e la curiosità diventa irresistibile.
+Una notte proibita fatta di sensualità, tentazione e mistero .
+Privé riservati, luci quasi assenti e voglia di oltrepassare i limiti
+Quello che succede nel privé… rimane nel buio
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
