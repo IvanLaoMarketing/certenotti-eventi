@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 22/09/2026 00:00 (ora italiana)
+Ultimo aggiornamento: 22/09/2026 13:44 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -294,6 +294,35 @@ VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 GIARDINO ESTIVO SOLARIUM   SPA
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## INSTINCT SPA
+
+- **Data:** giovedi 1 ottobre 2026
+- **Ora:** 14:00
+
+Una notte esclusiva dove fascino e mistero si incontrano in un ambiente raffinato
+Luci soffuse, musica coinvolgente, area wellness e un’accoglienza curata nei minimi
+dettagli faranno da cornice alla vostra serata per renderla
+trasgressiva e indimenticabile
+INSTINCT SPA
+Segui il tuo istinto. Il resto VIVILO.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+IDROMASSAGGIO CALDO &  SPA
 PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
