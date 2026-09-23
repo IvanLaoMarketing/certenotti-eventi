@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 22/09/2026 23:23 (ora italiana)
+Ultimo aggiornamento: 23/09/2026 06:49 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SPA & RELAX
-
-- **Data:** martedi 22 settembre 2026
-- **Ora:** 14:00
-
-Il tempo si ferma… e si accende il desiderio
-Un rituale pensato per abbandonarti al piacere del relax
-tra atmosfere avvolgenti e sensazioni che risvegliano ogni emozione
-Lasciati guidare in un’esperienza intensa, sensuale e fuori dagli schemi…
-dove ogni dettaglio è pensato per farti dimenticare il resto del mondo
-Ogni martedì siamo al servizio del tuo benessere…
-e dei tuoi desideri più profondi
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -327,6 +295,38 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BLACK REUNION
+
+- **Data:** venerdi 2 ottobre 2026
+- **Ora:** 14:00
+
+IMPETUOSI
+IRRESISTIBILI
+SENZA LIMITI
+Dimentica le regole. Dimentica la distanza
+by Luca Ferrero & Ambra
+Black Reunion non è per chi osserva da lontano
+È per chi vuole sentire l’adrenalina salire lenta…
+per poi esplodere in un turbine di pura passione
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+IDROMASSAGGIO CALDO & SPA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
