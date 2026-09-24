@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 24/09/2026 13:52 (ora italiana)
+Ultimo aggiornamento: 24/09/2026 19:15 (ora italiana)
 
 Prossimi eventi: 10
 
