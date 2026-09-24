@@ -1,47 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/09/2026 23:32 (ora italiana)
+Ultimo aggiornamento: 24/09/2026 06:57 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## FEMMINE INSAZIABILI & DESIDERIO CUCKOLD AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 23 settembre 2026
-- **Ora:** 14:00
-
-Quando Lei ha fame… è difficile dirle di no
-Lei esaudisce i suoi desideri,
-mentre lui osserva in silenzio, rapito da ogni istante
-Ogni sguardo, ogni carezza, ogni sorriso si svolge davanti ai suoi occhi,
-rendendo l’attesa ancora più intensa.
-A lui non resta che lasciarsi trasportare dallo spettacolo, assaporando ogni emozione.
-Osservare, immaginare, desiderare… e vivere il momento fino in fondo.
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -323,6 +284,39 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 IDROMASSAGGIO CALDO & SPA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## LOLLIPOP PARTY
+
+- **Data:** sabato 3 ottobre 2026
+- **Ora:** 10:00
+
+PIACERE
+GIOCO
+LIBERTÀ
+Una notte trasgressiva
+dove i desideri più dolci e le fantasie più audaci
+si intrecciano senza pudore
+Hai il coraggio di leccare fino in fondo
+Ingresso gratuito per le coppie
+che mettono “MI INTERESSA” su A69
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
