@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 24/09/2026 23:33 (ora italiana)
+Ultimo aggiornamento: 25/09/2026 07:02 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SCANDALOSO RELAX SPA
-
-- **Data:** giovedi 24 settembre 2026
-- **Ora:** 14:00
-
-Quando il desiderio prende il sopravvento sulla ragione, la notte cambia volto.
-Varca la soglia di un luogo dove ogni regola sembra dissolversi tra luci soffuse ,
-profumi avvolgenti e una colonna sonora capace di accendere i sensi.
-Qui il benessere è solo l’inizio…
-Sauna , bagno turco , idromassaggio e aree relax diventano il palcoscenico di un
-gioco sottile fatto di sguardi intensi, contatti sfiorati e fantasie che prendono forma.
-Ogni angolo invita ad avvicinarsi, ogni istante promette qualcosa di inatteso.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -321,6 +290,36 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SPA & GLORY HOLE PARTY
+
+- **Data:** domenica 4 ottobre 2026
+- **Ora:** 14:00
+
+Questa domenica si fa sul serio
+Sguardi sfacciati, provocazioni senza troppi giri di parole e una sola regola:
+lasciarsi andare
+Provoca, gioca e vedi fin dove arriva la tentazione
+E per chi ha voglia di qualcosa di ancora più trasgressivo,
+ci sarà il GLORY HOLE PARTY
+Se hai voglia di una giornata piccante, gioco e complicità senza freni…
+sai dove trovarci.
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
