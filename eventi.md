@@ -1,45 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 26/09/2026 23:14 (ora italiana)
+Ultimo aggiornamento: 27/09/2026 07:23 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## BASIC INSTINCT – Sotto il Vestito… Niente
-
-- **Data:** sabato 26 settembre 2026
-- **Ora:** 11:00
-
-Hai il coraggio di giocare con la fantasia?
-Questa notte il dress code è una provocazione,
-lo stile è un’arma e lo sguardo vale più di mille parole.
-Entra in scena con il tuo outfit più audace.
-Lascia immaginare più di quanto mostri.
-Accendi la notte con il tuo fascino.
-Un’atmosfera intensa, musica travolgente e un contest
-dove sicurezza, carisma e sensualità saranno i veri protagonisti.
-In palio premi esclusivi per:
-Migliore Interpretazione – la performance più intensa, creativa e coinvolgente.
-Mostra il tuo stile.
-Gioca con il mistero.
-Lascia il segno.
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -310,6 +273,37 @@ in un’atmosfera calda, accogliente e tutta da vivere
 E per chi ama aggiungere un pizzico di pepe ,
 c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
 Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SENSUAL SPA
+
+- **Data:** martedi 6 ottobre 2026
+- **Ora:** 14:00
+
+Il tempo rallenta… e il benessere prende il sopravvento
+Un rituale esclusivo pensato per lasciarti andare,
+immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
+Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
+ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
+Ogni martedì, dedicati a te.
+Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
