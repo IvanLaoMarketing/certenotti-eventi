@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 27/09/2026 23:23 (ora italiana)
+Ultimo aggiornamento: 28/09/2026 07:29 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## PRANZO con DJ IBIZA – CAPENSANTE & BOLLICINE
-
-- **Data:** domenica 27 settembre 2026
-- **Ora:** 10:00
-
-Il peccato inizia a tavola
-e il confine tra pranzo, festa e pura trasgressione si fa sempre più sottile
-S ole piscina musica e bollicine
-Un’atmosfera calda e provocante,
-fatta di sguardi sensualità e voglia di giocare senza freni
-Una giornata pensata per chi ama giocare con la seduzione,
-osare e vivere il piacere senza tabù .
-Vieni per il pranzo. Resta per l’atmosfera.
-Lasciati conquistare dalla notte.
-GIARDINO ESTIVO SOLARIUM   SPA
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA A BUFFET
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -304,6 +272,47 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BAD GIRLS AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 7 ottobre 2026
+- **Ora:** 14:00
+
+Lasciate ogni speranza voi che entrate
+perché questa notte non è fatta per chi ha intenzione di comportarsi bene
+BAD GIRLS accende il lato più proibito della notte:
+sguardi che provocano
+desideri senza filtri
+atmosfera sfacciatamente trasgressiva
+Nel PRIVÉ il gioco si fa ancora più intenso…
+luci basse,
+energia bollente, provocazioni.
+La notte comincia quando smetti di avere intenzioni innocenti.
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
