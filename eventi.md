@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 29/09/2026 01:19 (ora italiana)
+Ultimo aggiornamento: 29/09/2026 07:48 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -285,6 +285,36 @@ Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## EXCLUSIVE SPA
+
+- **Data:** giovedi 8 ottobre 2026
+- **Ora:** 14:00
+
+Quando il benessere incontra la seduzione, nasce un’esperienza che lascia il segno.
+Una location esclusiva, avvolta da luci soffuse, musica sensuale e un’atmosfera magnetica,
+dove ogni dettaglio invita a lasciarsi trasportare dal fascino della notte.
+Tra sauna, bagno turco, idromassaggio e aree relax, il confine tra relax e tentazione si assottiglia,
+regalando emozioni intense in un ambiente raffinato e riservato.
+Sguardi che si incrociano, sorrisi complici, eleganza, mistero e un pizzico di trasgressione rendono
+questa serata un’occasione unica per vivere un’esperienza coinvolgente e indimenticabile.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
