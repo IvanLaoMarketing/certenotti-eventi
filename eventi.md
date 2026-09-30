@@ -1,45 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 30/09/2026 14:41 (ora italiana)
+Ultimo aggiornamento: 01/10/2026 00:20 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## POMPINI AL BUIO AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 30 settembre 2026
-- **Ora:** 14:00
-
-Nel buio tutto cambia.
-Le distanze si accorciano e la curiosità diventa irresistibile.
-Una notte proibita fatta di sensualità, tentazione e mistero .
-Privé riservati, luci quasi assenti e voglia di oltrepassare i limiti
-Quello che succede nel privé… rimane nel buio
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-GIARDINO ESTIVO SOLARIUM   SPA
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
