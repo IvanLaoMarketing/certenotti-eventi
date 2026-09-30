@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 30/09/2026 00:19 (ora italiana)
+Ultimo aggiornamento: 30/09/2026 07:38 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -288,6 +288,42 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## FREEDOM NIGHT PARTY
+
+- **Data:** venerdi 9 ottobre 2026
+- **Ora:** 14:00
+
+UNA NOTTE PER POCHI. E SOLO PER GLI INVITATI.
+ACCESSO ESCLUSIVAMENTE SU INVITO NON È UNA SERATA APERTA AL PUBBLICO. NON SI ENTRA SENZA INVITO.
+Una notte riservata a chi è stato personalmente invitato
+a vivere un’atmosfera più audace, libera e trasgressiva.
+PORTE CHIUSE. DESIDERI APERTI.
+Niente ingressi casuali, niente curiosi:
+solo invitati, complicità e voglia di osare.
+Party dalle 20:30
+Privé fino alle 04:00
+HAI L’INVITO⁉
+Allora sai dove devi andare
+Non ce l’hai? Questa notte non è per te
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+IDROMASSAGGIO CALDO & SPA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
