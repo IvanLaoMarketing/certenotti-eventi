@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/10/2026 00:20 (ora italiana)
+Ultimo aggiornamento: 01/10/2026 08:02 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -283,6 +283,41 @@ COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 IDROMASSAGGIO CALDO & SPA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MISS CINEMA
+
+- **Data:** sabato 10 ottobre 2026
+- **Ora:** 11:00
+
+ELEGANZA
+SENSUALITÀ
+FEMMINILITÀ
+Gioca le tue carte migliori e conquista il concorso!
+MISS CINEMA – Certe Notti
+1000€ DI MONTEPREMI AL MAKEUP PIÙ SEXY
+Metti in risalto la tua bellezza con un makeup impeccabile
+Esalta la tua femminilità, eleganza e sensualità
+Lascia il segno davanti a tutti
+Il palco è tuo. La bellezza è la tua carta vincente
+Sei pronta a brillare?
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
