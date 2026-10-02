@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 02/10/2026 14:43 (ora italiana)
+Ultimo aggiornamento: 03/10/2026 00:17 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## BLACK REUNION
-
-- **Data:** venerdi 2 ottobre 2026
-- **Ora:** 14:00
-
-IMPETUOSI
-IRRESISTIBILI
-SENZA LIMITI
-Dimentica le regole. Dimentica la distanza
-by Luca Ferrero & Ambra
-Black Reunion non è per chi osserva da lontano
-È per chi vuole sentire l’adrenalina salire lenta…
-per poi esplodere in un turbine di pura passione
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-IDROMASSAGGIO CALDO & SPA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
