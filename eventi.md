@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 03/10/2026 07:23 (ora italiana)
+Ultimo aggiornamento: 03/10/2026 18:26 (ora italiana)
 
 Prossimi eventi: 10
 
@@ -20,6 +20,7 @@ si intrecciano senza pudore
 Hai il coraggio di leccare fino in fondo
 Ingresso gratuito per le coppie
 che mettono “MI INTERESSA” su A69
+DALLE ORE 20:30
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
