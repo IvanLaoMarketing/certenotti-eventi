@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 03/10/2026 23:21 (ora italiana)
+Ultimo aggiornamento: 04/10/2026 07:59 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## LOLLIPOP PARTY
-
-- **Data:** sabato 3 ottobre 2026
-- **Ora:** 10:00
-
-PIACERE
-GIOCO
-LIBERTÀ
-Una notte trasgressiva
-dove i desideri più dolci e le fantasie più audaci
-si intrecciano senza pudore
-Hai il coraggio di leccare fino in fondo
-Ingresso gratuito per le coppie
-che mettono “MI INTERESSA” su A69
-DALLE ORE 20:30
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -315,6 +281,37 @@ in un’atmosfera calda, accogliente e tutta da vivere
 E per chi ama aggiungere un pizzico di pepe ,
 c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
 Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SENSUAL SPA
+
+- **Data:** martedi 13 ottobre 2026
+- **Ora:** 14:00
+
+Il tempo rallenta… e il benessere prende il sopravvento
+Un rituale esclusivo pensato per lasciarti andare,
+immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
+Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
+ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
+Ogni martedì, dedicati a te.
+Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
