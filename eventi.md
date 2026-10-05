@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 04/10/2026 23:33 (ora italiana)
+Ultimo aggiornamento: 05/10/2026 07:48 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SPA & GLORY HOLE PARTY
-
-- **Data:** domenica 4 ottobre 2026
-- **Ora:** 14:00
-
-Questa domenica si fa sul serio
-Sguardi sfacciati, provocazioni senza troppi giri di parole e una sola regola:
-lasciarsi andare
-Provoca, gioca e vedi fin dove arriva la tentazione
-E per chi ha voglia di qualcosa di ancora più trasgressivo,
-ci sarà il GLORY HOLE PARTY
-Se hai voglia di una giornata piccante, gioco e complicità senza freni…
-sai dove trovarci.
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -312,6 +282,48 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DARK ROOM FEST AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 14 ottobre 2026
+- **Ora:** 14:00
+
+Quando le luci si spengono, il mistero prende il comando…
+Nel Privé al Buio potrai avvicinarti,
+sfiorarti e giocare con chi hai davanti, lasciandoti guidare dalla curiosità e dal desiderio
+Non saprai chi è…
+Non saprai cosa accadrà…
+Saprai soltanto che è lì, a pochi centimetri da te.
+Un gioco fatto di sguardi impossibili, mani che si cercano, brividi e complicità
+Ogni incontro è una sorpresa. Ogni sfioramento può accendere la fantasia
+ENTRA NEL BUIO.
+LASCIATI TENTARE.
+SCOPRI FIN DOVE VUOI SPINGERTI.
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
