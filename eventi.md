@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 05/10/2026 16:48 (ora italiana)
+Ultimo aggiornamento: 06/10/2026 02:06 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 5 ottobre 2026
-- **Ora:** 14:00
-
-L’autunno è il momento perfetto per concedersi una pausa…
-Lasciati avvolgere da acqua, relax e benessere,
-in un’atmosfera calda, accogliente e tutta da vivere
-E per chi ama aggiungere un pizzico di pepe ,
-c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
-Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -327,6 +297,39 @@ Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## ADULTERIA SEXY SPA
+
+- **Data:** giovedi 15 ottobre 2026
+- **Ora:** 14:00
+
+Questa non è una semplice serata in SPA.
+È una notte dedicata alla tentazione e al piacere di infrangere le regole…
+Vapore, pelle nuda, luci soffuse
+sguardi proibiti
+e un’atmosfera così calda da rendere difficile restare indifferenti.
+Un gioco di seduzione, curiosità e desiderio per chi ama uscire dalla routine, flirtare con il proibito
+e lasciarsi avvolgere dal piacere senza giudizio.
+La notte è lunga.
+Le tentazioni sono tante.
+Tu… quanto riuscirai a resistere?
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
