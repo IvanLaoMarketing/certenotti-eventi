@@ -1,49 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 07/10/2026 15:31 (ora italiana)
+Ultimo aggiornamento: 08/10/2026 01:08 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## BAD GIRLS AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 7 ottobre 2026
-- **Ora:** 14:00
-
-Lasciate ogni speranza voi che entrate
-perché questa notte non è fatta per chi ha intenzione di comportarsi bene
-BAD GIRLS accende il lato più proibito della notte:
-sguardi che provocano
-desideri senza filtri
-atmosfera sfacciatamente trasgressiva
-Nel PRIVÉ il gioco si fa ancora più intenso…
-luci basse,
-energia bollente, provocazioni.
-La notte comincia quando smetti di avere intenzioni innocenti.
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
