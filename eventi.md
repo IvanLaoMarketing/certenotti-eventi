@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 08/10/2026 01:08 (ora italiana)
+Ultimo aggiornamento: 08/10/2026 08:11 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -293,6 +293,47 @@ VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 DALLE ORE 21:00 COPPIE 10€
 IDROMASSAGGIO CALDO & SPA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HAPPY BIRTHDAY –  16 ANNI DI CERTE NOTTI
+
+- **Data:** sabato 17 ottobre 2026
+- **Ora:** 10:00
+
+Sedici anni di emozioni, incontri, eleganza e momenti impossibili da dimenticare.
+Sedici anni vissuti insieme.
+Sedici anni di  Certe Notti
+E questa volta…
+la notte avrà un sapore speciale.
+BRINDIAMO A 16 ANNI
+TORTA PER TUTTI
+SORPRESE DA SCOPRIRE
+UNA NOTTE DA VIVERE
+E poi c’è lo stile…
+perché una notte così merita di essere vissuta  con classe
+DRESS CODE OBBLIGATORIO
+Sensuale • elegante • raffinato
+Elegante • camicia obbligatoria
+NO SNEAKERS
+16 ANNI DI CERTE NOTTI.
+E LA STORIA CONTINUA…
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
