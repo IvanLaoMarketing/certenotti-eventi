@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 09/10/2026 01:23 (ora italiana)
+Ultimo aggiornamento: 09/10/2026 08:15 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -308,6 +308,50 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## CONTEST AUFGUSS COPPIE OMAGGIO dalle 10 alle 15
+
+- **Data:** domenica 18 ottobre 2026
+- **Ora:** 10:00
+
+Una giornata dedicata all’arte dell’Aufguss ,
+dove il calore diventa spettacolo, emozione e seduzione
+Nella  grande sauna esterna  , preparati a vivere una successione di  Aufguss Show
+capaci di avvolgere tutti i sensi:
+nuvole di vapore,
+profumi intensi,
+musica,
+gesti scenografici
+e il calore che sale lentamente sulla pelle
+I  Maestri di Sauna   si sfideranno in performance coinvolgenti e spettacolari,
+mettendo in gioco  tecnica, creatività e presenza scenica
+Ogni gettata sarà un crescendo di sensazioni, tra  brividi di piacere  ,
+atmosfere roventi e momenti che lasciano il segno
+E quando il calore raggiungerà il suo apice ,
+sarà il momento della  premiazione dei migliori Maestri di Sauna  :
+talento, passione e spettacolarità saranno celebrati in una giornata tutta da vivere
+Lasciati tentare dal calore.
+Respira il profumo del vapore,
+senti la temperatura salire
+e lasciati conquistare dall’atmosfera.
+COPPIE OMAGGIO dalle 10 alle 15
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
