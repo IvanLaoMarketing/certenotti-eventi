@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 10/10/2026 23:48 (ora italiana)
+Ultimo aggiornamento: 11/10/2026 07:53 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MISS CINEMA
-
-- **Data:** sabato 10 ottobre 2026
-- **Ora:** 11:00
-
-ELEGANZA
-SENSUALITÀ
-FEMMINILITÀ
-Gioca le tue carte migliori e conquista il concorso!
-MISS CINEMA – Certe Notti
-1000€ DI MONTEPREMI AL MAKEUP PIÙ SEXY
-Metti in risalto la tua bellezza con un makeup impeccabile
-Esalta la tua femminilità, eleganza e sensualità
-Lascia il segno davanti a tutti
-Il palco è tuo. La bellezza è la tua carta vincente
-Sei pronta a brillare?
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -338,6 +303,37 @@ in un’atmosfera calda, accogliente e tutta da vivere
 E per chi ama aggiungere un pizzico di pepe ,
 c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
 Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SENSUAL SPA
+
+- **Data:** martedi 20 ottobre 2026
+- **Ora:** 14:00
+
+Il tempo rallenta… e il benessere prende il sopravvento
+Un rituale esclusivo pensato per lasciarti andare,
+immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
+Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
+ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
+Ogni martedì, dedicati a te.
+Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
