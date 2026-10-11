@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 11/10/2026 14:57 (ora italiana)
+Ultimo aggiornamento: 12/10/2026 00:02 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## SAUNA E RITUALIGIORNATA TINDER
-
-- **Data:** domenica 11 ottobre 2026
-- **Ora:** 10:00
-
-Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
-Super SPA & AUFGUSS con Maestri Professionisti
-Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
-Coppie Under 45 OSPITI
-Lui + Lei = 70 OSPITI
-COPPIE OMAGGIO dalle 10 alle 15
-Diretta. Calda. Senza giri di parole.
-Vieni a scaldarti insieme a noi
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
