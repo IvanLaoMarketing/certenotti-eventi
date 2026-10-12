@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 12/10/2026 00:02 (ora italiana)
+Ultimo aggiornamento: 12/10/2026 08:04 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -303,6 +303,45 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## UNA PER TUTTI..TUTTI PER UNA NOCHE CALIENTE
+
+- **Data:** mercoledi 21 ottobre 2026
+- **Ora:** 14:00
+
+DEVASTANTI
+MISTERIOSE
+INCONTROLLABILI
+LADY JAYNE & LA TENTAZIONE
+Qui le regole durano poco…
+e le tentazioni molto di più
+Niente promesse.
+Niente illusioni.
+Solo sguardi, provocazioni
+e quel brivido che non sai dove ti porterà
+Perché quando il desiderio prende il comando…
+fermarsi diventa impossibile
+GANG BANG dalle ore 18:00
+Aufguss Notturni
+Dj Set
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
