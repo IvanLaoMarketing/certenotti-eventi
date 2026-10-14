@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 14/10/2026 00:49 (ora italiana)
+Ultimo aggiornamento: 14/10/2026 06:59 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -320,6 +320,38 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## CUCKOLD NIGHT
+
+- **Data:** venerdi 23 ottobre 2026
+- **Ora:** 14:00
+
+QUANDO LUI TI CHIEDE DI TRADIRLO…
+E DI LASCIARTI TRASPORTARE DALL’ADRENALINA DI UN VERO BULL
+Una fantasia proibita, la complicità negli sguardi e quel brivido che fa perdere ogni certezza…
+Lui guarda, tu sorridi…
+e per una notte le regole cambiano.
+Quando il desiderio prende il sopravvento… quanto sei disposto a spingerti?
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+DALLE ORE 21:00 COPPIE 10€
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
