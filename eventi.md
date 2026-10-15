@@ -1,50 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 14/10/2026 23:45 (ora italiana)
+Ultimo aggiornamento: 15/10/2026 06:47 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DARK ROOM FEST AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 14 ottobre 2026
-- **Ora:** 14:00
-
-Quando le luci si spengono, il mistero prende il comando…
-Nel Privé al Buio potrai avvicinarti,
-sfiorarti e giocare con chi hai davanti, lasciandoti guidare dalla curiosità e dal desiderio
-Non saprai chi è…
-Non saprai cosa accadrà…
-Saprai soltanto che è lì, a pochi centimetri da te.
-Un gioco fatto di sguardi impossibili, mani che si cercano, brividi e complicità
-Ogni incontro è una sorpresa. Ogni sfioramento può accendere la fantasia
-ENTRA NEL BUIO.
-LASCIATI TENTARE.
-SCOPRI FIN DOVE VUOI SPINGERTI.
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -350,6 +308,45 @@ VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MORENASEX OFFICIAL PARTY
+
+- **Data:** sabato 24 ottobre 2026
+- **Ora:** 11:00
+
+Una notte dove l’eleganza incontra la trasgressione
+gli sguardi si accendono, i desideri si liberano
+e ogni dettaglio è pensato per sedurvi
+Privé roventi
+Tentazioni ovunque
+Voglia di osare fino all’alba
+MorenaSex apre le porte al piacere
+alla seduzione e alla voglia di vivere una notte senza regole
+DRESS CODE OBBLIGATORIO
+LEI: elegante e provocante…
+trasparenze, spacchi audaci, lingerie, tacchi vertiginosi
+LUI: fascino deciso ed elegante… camicia aperta al punto giusto, completo scuro, stile impeccabile
+Lasciati andare…
+MorenaSex ti aspetta
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
 CENA SERVITA
 DISCO
 PRIVÉ
