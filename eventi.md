@@ -1,41 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 15/10/2026 23:27 (ora italiana)
+Ultimo aggiornamento: 16/10/2026 06:37 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## ADULTERIA SEXY SPA
-
-- **Data:** giovedi 15 ottobre 2026
-- **Ora:** 14:00
-
-Questa non è una semplice serata in SPA.
-È una notte dedicata alla tentazione e al piacere di infrangere le regole…
-Vapore, pelle nuda, luci soffuse
-sguardi proibiti
-e un’atmosfera così calda da rendere difficile restare indifferenti.
-Un gioco di seduzione, curiosità e desiderio per chi ama uscire dalla routine, flirtare con il proibito
-e lasciarsi avvolgere dal piacere senza giudizio.
-La notte è lunga.
-Le tentazioni sono tante.
-Tu… quanto riuscirai a resistere?
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -349,6 +316,40 @@ PRANZO A BUFFET
 APERITIVO E SPRITZ
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## LA DOMENICA DELLE COPPIE – PER LA PRIMA VOLTA IN SPA
+
+- **Data:** domenica 25 ottobre 2026
+- **Ora:** 10:00
+
+Una domenica speciale, pensata per chi vuole vivere una giornata diversa dal solito,
+in un’atmosfera elegante, rilassata e dedicata esclusivamente alle coppie.
+Dalla mattina alla sera, tutto in un’unica esperienza.
+Un’intera giornata per staccare dalla routine, concedersi momenti di benessere e condividere
+complicità, relax e divertimento insieme.
+SPA • RELAX • APERITIVO • MUSICA • SERATA
+Per questa occasione,  la domenica in SPA sarà riservata alle sole coppie
+che desiderano vivere una domenica fuori dagli schemi,
+tra benessere, atmosfera e una serata tutta da ricordare
+I singoli saranno ammessi esclusivamente nei privé della disco al piano terra.
+COPPIE OMAGGIO dalle 10 alle 15
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
