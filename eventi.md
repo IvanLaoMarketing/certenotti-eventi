@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 16/10/2026 23:15 (ora italiana)
+Ultimo aggiornamento: 17/10/2026 06:34 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## WHITE BIKINI PARTY
-
-- **Data:** venerdi 16 ottobre 2026
-- **Ora:** 14:00
-
-Il bianco non è mai stato così… irresistibile
-WHITE BIKINI PARADE
-Partecipa alla sfilata e riceverai il tuo  bikini bianco .
-Indossalo. Sfilalo. Fatti notare.
-Da quel momento…  la notte cambia ritmo.
-Le protagoniste della serata sfileranno sotto i riflettori, tra sguardi,
-musica e un pizzico di esibizionismo.
-GRANDE PREMIAZIONE FINALE
-Chi sarà la più  sexy e spregiudicata  della notte?
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-DALLE ORE 21:00 COPPIE 10€
-IDROMASSAGGIO CALDO & SPA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -347,6 +313,36 @@ SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 26 ottobre 2026
+- **Ora:** 14:00
+
+L’autunno è il momento perfetto per concedersi una pausa…
+Lasciati avvolgere da acqua, relax e benessere,
+in un’atmosfera calda, accogliente e tutta da vivere
+E per chi ama aggiungere un pizzico di pepe ,
+c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
+Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
