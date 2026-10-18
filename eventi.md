@@ -1,49 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 17/10/2026 22:39 (ora italiana)
+Ultimo aggiornamento: 18/10/2026 06:39 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## HAPPY BIRTHDAY –  16 ANNI DI CERTE NOTTI
-
-- **Data:** sabato 17 ottobre 2026
-- **Ora:** 10:00
-
-Sedici anni di emozioni, incontri, eleganza e momenti impossibili da dimenticare.
-Sedici anni vissuti insieme.
-Sedici anni di  Certe Notti
-E questa volta…
-la notte avrà un sapore speciale.
-BRINDIAMO A 16 ANNI
-TORTA PER TUTTI
-SORPRESE DA SCOPRIRE
-UNA NOTTE DA VIVERE
-E poi c’è lo stile…
-perché una notte così merita di essere vissuta  con classe
-DRESS CODE OBBLIGATORIO
-Sensuale • elegante • raffinato
-Elegante • camicia obbligatoria
-NO SNEAKERS
-16 ANNI DI CERTE NOTTI.
-E LA STORIA CONTINUA…
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -338,6 +297,37 @@ in un’atmosfera calda, accogliente e tutta da vivere
 E per chi ama aggiungere un pizzico di pepe ,
 c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
 Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SENSUAL SPA
+
+- **Data:** martedi 27 ottobre 2026
+- **Ora:** 14:00
+
+Il tempo rallenta… e il benessere prende il sopravvento
+Un rituale esclusivo pensato per lasciarti andare,
+immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
+Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
+ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
+Ogni martedì, dedicati a te.
+Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
