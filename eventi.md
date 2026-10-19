@@ -1,52 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 18/10/2026 22:49 (ora italiana)
+Ultimo aggiornamento: 19/10/2026 06:47 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## CONTEST AUFGUSS COPPIE OMAGGIO dalle 10 alle 15
-
-- **Data:** domenica 18 ottobre 2026
-- **Ora:** 10:00
-
-Una giornata dedicata all’arte dell’Aufguss ,
-dove il calore diventa spettacolo, emozione e seduzione
-Nella  grande sauna esterna  , preparati a vivere una successione di  Aufguss Show
-capaci di avvolgere tutti i sensi:
-nuvole di vapore,
-profumi intensi,
-musica,
-gesti scenografici
-e il calore che sale lentamente sulla pelle
-I  Maestri di Sauna   si sfideranno in performance coinvolgenti e spettacolari,
-mettendo in gioco  tecnica, creatività e presenza scenica
-Ogni gettata sarà un crescendo di sensazioni, tra  brividi di piacere  ,
-atmosfere roventi e momenti che lasciano il segno
-E quando il calore raggiungerà il suo apice ,
-sarà il momento della  premiazione dei migliori Maestri di Sauna  :
-talento, passione e spettacolarità saranno celebrati in una giornata tutta da vivere
-Lasciati tentare dal calore.
-Respira il profumo del vapore,
-senti la temperatura salire
-e lasciati conquistare dall’atmosfera.
-COPPIE OMAGGIO dalle 10 alle 15
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -328,6 +284,45 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## LEI CERCA LEI — BISEX PARTY AUFGUSS NOTTURNI
+
+- **Data:** mercoledi 28 ottobre 2026
+- **Ora:** 14:00
+
+Una notte senza tabù. Un gioco di sguardi. Una tentazione dopo l’altra.
+Una notte per chi ama provocare, lasciarsi osservare
+e scoprire quanto può essere irresistibile l’attrazione quando le regole vengono messe da parte.
+Luci rosse, musica avvolgente, atmosfera bollente
+e un pubblico pronto a giocare con  seduzione, curiosità e fantasia .
+Dress code:  audace, sexy, provocante.
+Mood:  trasgressivo, libero, sensuale.
+Regola principale:  niente giudizi, solo rispetto, consenso e voglia di divertirsi.
+A seguire… gli Aufguss Notturni
+Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
+e un’atmosfera unica accompagneranno gli ospiti
+in un viaggio sensoriale capace di stupire e coinvolgere.
+Una notte da vivere fino all’ultimo soffio di vapore
+DJ Set con sonorità travolgenti
+Calore, musica e passione ti aspettano
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
