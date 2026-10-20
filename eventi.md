@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 20/10/2026 00:24 (ora italiana)
+Ultimo aggiornamento: 20/10/2026 06:56 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -293,6 +293,37 @@ in un viaggio sensoriale capace di stupire e coinvolgere.
 Una notte da vivere fino all’ultimo soffio di vapore
 DJ Set con sonorità travolgenti
 Calore, musica e passione ti aspettano
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SCANDALOSO RELAX SPA
+
+- **Data:** giovedi 29 ottobre 2026
+- **Ora:** 14:00
+
+Quando il desiderio prende il sopravvento sulla ragione, la notte cambia volto.
+Varca la soglia di un luogo dove ogni regola sembra dissolversi tra luci soffuse ,
+profumi avvolgenti e una colonna sonora capace di accendere i sensi.
+Qui il benessere è solo l’inizio…
+Sauna , bagno turco , idromassaggio e aree relax diventano il palcoscenico di un
+gioco sottile fatto di sguardi intensi, contatti sfiorati e fantasie che prendono forma.
+Ogni angolo invita ad avvicinarsi, ogni istante promette qualcosa di inatteso.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
