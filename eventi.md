@@ -1,47 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 21/10/2026 23:46 (ora italiana)
+Ultimo aggiornamento: 22/10/2026 06:55 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## UNA PER TUTTI..TUTTI PER UNA NOCHE CALIENTE
-
-- **Data:** mercoledi 21 ottobre 2026
-- **Ora:** 14:00
-
-DEVASTANTI
-MISTERIOSE
-INCONTROLLABILI
-LADY JAYNE & LA TENTAZIONE
-Qui le regole durano poco…
-e le tentazioni molto di più
-Niente promesse.
-Niente illusioni.
-Solo sguardi, provocazioni
-e quel brivido che non sai dove ti porterà
-Perché quando il desiderio prende il comando…
-fermarsi diventa impossibile
-GANG BANG dalle ore 18:00
-Aufguss Notturni
-Dj Set
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -328,6 +289,41 @@ Spegni le luci. Accendi la tentazione. E prendi ciò che desideri.
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HALLOWEEN HORROR SEXY PARTY
+
+- **Data:** sabato 31 ottobre 2026
+- **Ora:** 11:00
+
+La notte più oscura dell’anno sta per cominciare.
+Mostri, peccati, desideri e tentazioni si incontrano in un party
+dove  l’orrore diventa sexy e la trasgressione è di casa
+Le creature più sexy della notte usciranno allo scoperto e  l’innocenza resterà fuori dalla porta.
+Mostri e creature inquietanti
+Sexy outfit e provocazione
+Maschere, mistero e identità nascoste
+Luci dark, musica e atmosfera proibita
+Scegli la tua maschera, alza il tasso di provocazione
+e preparati a una notte in cui  paura e desiderio si incontrano .
+DRESS CODE OBBLIGATORIO: IN MASCHERA
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
