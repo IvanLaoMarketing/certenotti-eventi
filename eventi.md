@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 22/10/2026 23:40 (ora italiana)
+Ultimo aggiornamento: 23/10/2026 06:58 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SCANDALOSO RELAX SPA
-
-- **Data:** giovedi 22 ottobre 2026
-- **Ora:** 14:00
-
-Quando il desiderio prende il sopravvento sulla ragione, la notte cambia volto.
-Varca la soglia di un luogo dove ogni regola sembra dissolversi tra luci soffuse ,
-profumi avvolgenti e una colonna sonora capace di accendere i sensi.
-Qui il benessere è solo l’inizio…
-Sauna , bagno turco , idromassaggio e aree relax diventano il palcoscenico di un
-gioco sottile fatto di sguardi intensi, contatti sfiorati e fantasie che prendono forma.
-Ogni angolo invita ad avvicinarsi, ogni istante promette qualcosa di inatteso.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -333,6 +302,47 @@ PRIVÉ
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
 ~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HALLOWEEN HORROR AUFGUSS DAY
+
+- **Data:** domenica 1 novembre 2026
+- **Ora:** 10:00
+
+RITUALI DI VAPORE… DA PAURA!
+Preparati a entrare nella sauna più stregata dell’anno… se ne hai il coraggio!
+Nuvole di vapore misteriose
+Profumi sospetti
+Maestri Aufguss pronti a scatenare il calore
+E qualche presenza inquietante che potrebbe aggirarsi tra le panche…
+Le luci si abbassano, il vapore sale e la sauna si trasforma
+in un covo di streghe, fantasmi e creature del calore
+S opravvivi all’Halloween più bollente dell’anno!
+Hai il coraggio di entrare?
+Vietato ai deboli di cuore. Consigliato ai temerari.
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+Tesseramento/Rinnovo annuale ASX (365 giorni) 30€ a persona
 APERTI DA LUNEDÌ A DOMENICA
 * Quote già tesserati Assosex
 ** Le quote possono variare in qualsiasi momento senza alcun preavviso
