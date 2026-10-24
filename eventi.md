@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/10/2026 23:27 (ora italiana)
+Ultimo aggiornamento: 24/10/2026 06:42 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## CUCKOLD NIGHT
-
-- **Data:** venerdi 23 ottobre 2026
-- **Ora:** 14:00
-
-QUANDO LUI TI CHIEDE DI TRADIRLO…
-E DI LASCIARTI TRASPORTARE DALL’ADRENALINA DI UN VERO BULL
-Una fantasia proibita, la complicità negli sguardi e quel brivido che fa perdere ogni certezza…
-Lui guarda, tu sorridi…
-e per una notte le regole cambiano.
-Quando il desiderio prende il sopravvento… quanto sei disposto a spingerti?
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-DALLE ORE 21:00 COPPIE 10€
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -343,6 +311,37 @@ Info costi
 Visita www.certenotti.eu nella sezione QUOTE
 ~~~~
 Tesseramento/Rinnovo annuale ASX (365 giorni) 30€ a persona
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 2 novembre 2026
+- **Ora:** 14:00
+
+L’autunno è il momento perfetto per concedersi una pausa…
+Lasciati avvolgere da acqua, relax e benessere,
+in un’atmosfera calda, accogliente e tutta da vivere
+E per chi ama aggiungere un pizzico di pepe ,
+c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
+Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA ID
+ROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
 APERTI DA LUNEDÌ A DOMENICA
 * Quote già tesserati Assosex
 ** Le quote possono variare in qualsiasi momento senza alcun preavviso
