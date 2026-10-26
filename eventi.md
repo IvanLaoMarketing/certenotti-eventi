@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 25/10/2026 21:55 (ora italiana)
+Ultimo aggiornamento: 26/10/2026 05:54 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## LA DOMENICA DELLE COPPIE – PER LA PRIMA VOLTA IN SPA
-
-- **Data:** domenica 25 ottobre 2026
-- **Ora:** 10:00
-
-Una domenica speciale, pensata per chi vuole vivere una giornata diversa dal solito,
-in un’atmosfera elegante, rilassata e dedicata esclusivamente alle coppie.
-Dalla mattina alla sera, tutto in un’unica esperienza.
-Un’intera giornata per staccare dalla routine, concedersi momenti di benessere e condividere
-complicità, relax e divertimento insieme.
-SPA • RELAX • APERITIVO • MUSICA • SERATA
-Per questa occasione,  la domenica in SPA sarà riservata alle sole coppie
-che desiderano vivere una domenica fuori dagli schemi,
-tra benessere, atmosfera e una serata tutta da ricordare
-I singoli saranno ammessi esclusivamente nei privé della disco al piano terra.
-COPPIE OMAGGIO dalle 10 alle 15
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -321,6 +287,36 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## GIOCHI PROIBITI POMPINI AL BUIO GLORY HOLE PARTY
+
+- **Data:** mercoledi 4 novembre 2026
+- **Ora:** 14:00
+
+DARK ATMOSPHERE
+GLORY HOLE PARTY
+TRASGRESSIONE E TENTAZIONE
+Quando cala il buio, ogni tentazione trova spazio.
+Una notte dedicata a chi ama il proibito , il mistero e le esperienze fuori dagli schemi.
+Lasciati guidare dal desiderio e scopri fin dove vuoi spingerti…
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
