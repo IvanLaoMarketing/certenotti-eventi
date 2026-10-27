@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 26/10/2026 23:43 (ora italiana)
+Ultimo aggiornamento: 27/10/2026 06:11 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 26 ottobre 2026
-- **Ora:** 14:00
-
-L’autunno è il momento perfetto per concedersi una pausa…
-Lasciati avvolgere da acqua, relax e benessere,
-in un’atmosfera calda, accogliente e tutta da vivere
-E per chi ama aggiungere un pizzico di pepe ,
-c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
-Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -317,6 +287,42 @@ TRASGRESSIONE E TENTAZIONE
 Quando cala il buio, ogni tentazione trova spazio.
 Una notte dedicata a chi ama il proibito , il mistero e le esperienze fuori dagli schemi.
 Lasciati guidare dal desiderio e scopri fin dove vuoi spingerti…
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## ECSTASY SPA – LA SPA SUPER ECCITANTE
+
+- **Data:** giovedi 5 novembre 2026
+- **Ora:** 14:00
+
+QUANDO LA NOTTE DIVENTA UNA TENTAZIONE…
+Dimentica per qualche ora ciò che è concesso e ciò che non lo è.
+Varca la soglia, lasciati avvolgere dal calore e scopri un’atmosfera
+dove curiosità, complicità e desiderio si incontrano
+Luci basse
+Profumi intensi
+Calore che sale lentamente
+Tra vapore, acqua e zona relax nasce l’intrigo.
+Uno sguardo può durare un secondo in più.
+Un sorriso può diventare una provocazione.
+Una vicinanza può trasformarsi in una tentazione.
+E una semplice serata può prendere una direzione completamente inattesa.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
