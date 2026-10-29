@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 29/10/2026 14:09 (ora italiana)
+Ultimo aggiornamento: 29/10/2026 23:48 (ora italiana)
 
 Prossimi eventi: 10
 
@@ -272,7 +272,7 @@ APERTI DA LUNEDÌ A DOMENICA
 
 ---
 
-## BLACK REUNION
+## BLACK REUNION BIRTHDAY GANG BANG PARTY
 
 - **Data:** venerdi 6 novembre 2026
 - **Ora:** 14:00
@@ -290,6 +290,10 @@ by Luca Ferrero & Ambra
 VOTA IL BLACK PIÙ BELLO
 Una giuria tutta al femminile sceglierà il ragazzo black che si distinguerà
 per fascino, presenza, stile e… impatto
+HAPPY BIRTHDAY CUBANITA
+La Cubanita ha una solo richiesta per il suo compleanno:
+una GANG BANG tutta per lei
+A VOI LA SCELTA!!
 BLACK REUNION
 Per donne che sanno cosa vogliono.
 Per Black Men che sanno come farsi ricordare.
