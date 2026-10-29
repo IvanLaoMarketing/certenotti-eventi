@@ -1,47 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 28/10/2026 23:39 (ora italiana)
+Ultimo aggiornamento: 29/10/2026 06:53 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## LEI CERCA LEI — BISEX PARTY AUFGUSS NOTTURNI
-
-- **Data:** mercoledi 28 ottobre 2026
-- **Ora:** 14:00
-
-Una notte senza tabù. Un gioco di sguardi. Una tentazione dopo l’altra.
-Una notte per chi ama provocare, lasciarsi osservare
-e scoprire quanto può essere irresistibile l’attrazione quando le regole vengono messe da parte.
-Luci rosse, musica avvolgente, atmosfera bollente
-e un pubblico pronto a giocare con  seduzione, curiosità e fantasia .
-Dress code:  audace, sexy, provocante.
-Mood:  trasgressivo, libero, sensuale.
-Regola principale:  niente giudizi, solo rispetto, consenso e voglia di divertirsi.
-A seguire… gli Aufguss Notturni
-Rituali di sauna intensi, giochi di vapore, profumi avvolgenti
-e un’atmosfera unica accompagneranno gli ospiti
-in un viaggio sensoriale capace di stupire e coinvolgere.
-Una notte da vivere fino all’ultimo soffio di vapore
-DJ Set con sonorità travolgenti
-Calore, musica e passione ti aspettano
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -338,6 +299,37 @@ VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## TOPLESS DISCO BAR
+
+- **Data:** sabato 7 novembre 2026
+- **Ora:** 11:00
+
+Una notte fuori dagli schemi,
+dove la voglia di divertirsi incontra un’atmosfera audace e senza inibizioni
+Happy Hour speciale dedicato a chi sceglie di ballare in topless
+Un party irriverente, sensuale e decisamente trasgressivo,
+per chi ama provocare, osare e sedurre
+Vieni a ballare, osa, provoca, fatti desiderare
+e vivi una notte che difficilmente dimenticherai.
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
