@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 29/10/2026 23:48 (ora italiana)
+Ultimo aggiornamento: 30/10/2026 06:55 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SCANDALOSO RELAX SPA
-
-- **Data:** giovedi 29 ottobre 2026
-- **Ora:** 14:00
-
-Quando il desiderio prende il sopravvento sulla ragione, la notte cambia volto.
-Varca la soglia di un luogo dove ogni regola sembra dissolversi tra luci soffuse ,
-profumi avvolgenti e una colonna sonora capace di accendere i sensi.
-Qui il benessere è solo l’inizio…
-Sauna , bagno turco , idromassaggio e aree relax diventano il palcoscenico di un
-gioco sottile fatto di sguardi intensi, contatti sfiorati e fantasie che prendono forma.
-Ogni angolo invita ad avvicinarsi, ogni istante promette qualcosa di inatteso.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -338,6 +307,37 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## GIORNATA TINDER SUPER SPA AUFGUSS DAY
+
+- **Data:** domenica 8 novembre 2026
+- **Ora:** 10:00
+
+Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
+Super SPA & AUFGUSS con Maestri Professionisti
+Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
+Coppie Under 45 OSPITI
+Lui + Lei = 70 OSPITI
+COPPIE OMAGGIO dalle 10 alle 15
+Diretta. Calda. Senza giri di parole.
+Vieni a scaldarti insieme a noi
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
