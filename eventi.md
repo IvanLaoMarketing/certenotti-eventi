@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 30/10/2026 23:25 (ora italiana)
+Ultimo aggiornamento: 31/10/2026 06:51 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DOLCETTO O CAZZETTO? – GLORY HOLE AL BUIO
-
-- **Data:** venerdi 30 ottobre 2026
-- **Ora:** 14:00
-
-Halloween cambia faccia… e questa volta sarà  tutto al buio
-Una notte  trasgressiva, irriverente e senza troppe regole ,
-per chi ama lasciarsi andare e scoprire cosa succede quando le luci in privé si spengono.
-GLORY HOLE AL BUIO
-Atmosfera hot e provocante
-Giochi e sorprese
-DOLCETTO O CAZZETTO?
-Spegni le luci. Accendi la tentazione. E prendi ciò che desideri.
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -335,6 +304,37 @@ SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 9 novembre 2026
+- **Ora:** 14:00
+
+L’autunno è il momento perfetto per concedersi una pausa…
+Lasciati avvolgere da acqua, relax e benessere,
+in un’atmosfera calda, accogliente e tutta da vivere
+E per chi ama aggiungere un pizzico di pepe ,
+c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
+Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA ID
+ROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
