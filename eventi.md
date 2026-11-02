@@ -1,49 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 01/11/2026 23:06 (ora italiana)
+Ultimo aggiornamento: 02/11/2026 07:16 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## HALLOWEEN HORROR AUFGUSS DAY
-
-- **Data:** domenica 1 novembre 2026
-- **Ora:** 10:00
-
-RITUALI DI VAPORE… DA PAURA!
-Preparati a entrare nella sauna più stregata dell’anno… se ne hai il coraggio!
-Nuvole di vapore misteriose
-Profumi sospetti
-Maestri Aufguss pronti a scatenare il calore
-E qualche presenza inquietante che potrebbe aggirarsi tra le panche…
-Le luci si abbassano, il vapore sale e la sauna si trasforma
-in un covo di streghe, fantasmi e creature del calore
-S opravvivi all’Halloween più bollente dell’anno!
-Hai il coraggio di entrare?
-Vietato ai deboli di cuore. Consigliato ai temerari.
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-Tesseramento/Rinnovo annuale ASX (365 giorni) 30€ a persona
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -326,6 +285,41 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## 1000 E UNA NOTTE… VINCI UN WEEKEND IN ITALIA PER 2 PERSONE
+
+- **Data:** mercoledi 11 novembre 2026
+- **Ora:** 14:00
+
+SGUARDI CHE PROVOCANO
+FANTASIE CHE STUZZICANO
+EMOZIONI CHE FANNO SALIRE LA TEMPERATURA
+Una notte proibita, mille tentazioni e il desiderio di spingersi oltre i soliti confini…
+Preparati a un’atmosfera carica di sensualità, incontri intriganti,
+complicità e tentazioni da vivere senza pregiudizi.
+E LA NOTTE POTREBBE REGALARTI MOLTO DI PIÙ…
+In palio un WEEKEND IN ITALIA PER 2 PERSONE :
+una fuga speciale da condividere con chi sa accendere la tua voglia di avventura!
+Sei pronto a varcare la soglia?
+Hai il coraggio di vivere una notte davvero trasgressiva?
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
