@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 02/11/2026 17:17 (ora italiana)
+Ultimo aggiornamento: 03/11/2026 02:01 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 2 novembre 2026
-- **Ora:** 14:00
-
-L’autunno è il momento perfetto per concedersi una pausa…
-Lasciati avvolgere da acqua, relax e benessere,
-in un’atmosfera calda, accogliente e tutta da vivere
-E per chi ama aggiungere un pizzico di pepe ,
-c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
-Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA ID
-ROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -320,6 +289,36 @@ In palio un WEEKEND IN ITALIA PER 2 PERSONE :
 una fuga speciale da condividere con chi sa accendere la tua voglia di avventura!
 Sei pronto a varcare la soglia?
 Hai il coraggio di vivere una notte davvero trasgressiva?
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PICCANTE POMERIGGIO IN SPA…
+
+- **Data:** giovedi 12 novembre 2026
+- **Ora:** 14:00
+
+Vapore, luci soffuse e temperature che salgono…
+non solo per il calore dell’acqua!
+Sguardi maliziosi e quella complicità pericolosa che rende ogni istante carico di tensione…
+Tra bollicine, pelle bagnata e riflessi sensuali   la distanza si accorcia…
+Perché quando l’atmosfera è quella giusta, il vero brivido non è il calore della spa
+ma ciò che potrebbe accadere quando gli sguardi smettono di essere innocenti
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
