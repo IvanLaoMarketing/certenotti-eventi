@@ -1,44 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 05/11/2026 21:00 (ora italiana)
+Ultimo aggiornamento: 06/11/2026 07:54 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## ECSTASY SPA – LA SPA SUPER ECCITANTE
-
-- **Data:** giovedi 5 novembre 2026
-- **Ora:** 14:00
-
-QUANDO LA NOTTE DIVENTA UNA TENTAZIONE…
-Dimentica per qualche ora ciò che è concesso e ciò che non lo è.
-Varca la soglia, lasciati avvolgere dal calore e scopri un’atmosfera
-dove curiosità, complicità e desiderio si incontrano
-Luci basse
-Profumi intensi
-Calore che sale lentamente
-Tra vapore, acqua e zona relax nasce l’intrigo.
-Uno sguardo può durare un secondo in più.
-Un sorriso può diventare una provocazione.
-Una vicinanza può trasformarsi in una tentazione.
-E una semplice serata può prendere una direzione completamente inattesa.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -344,6 +308,44 @@ Info costi
 Visita www.certenotti.eu nella sezione QUOTE
 ~~~~
 Tesseramento/Rinnovo annuale ASX (365 giorni) 30€ a persona
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## WELLNESS DAY – EROTIC CHOCOLATE SCRUB
+
+- **Data:** domenica 15 novembre 2026
+- **Ora:** 10:00
+
+Un’esperienza unica in Italia, dove il benessere incontra la trasgressione…
+Preparati a vivere una giornata in cui il relax della SPA
+si fonde con il fascino della seduzione e il piacere di lasciarsi andare.
+Il rituale del cioccolato
+Lasciati avvolgere dalle note intense del cacao, protagonista di un esclusivo scrub al cioccolato: un
+rituale sensoriale che accarezza la pelle, risveglia i sensi
+e trasforma il benessere in un’esperienza avvolgente e intrigante.
+SPA, atmosfere intime e complicità
+Tra vapori caldi, acqua, luci soffuse e atmosfere suggestive, la SPA diventa il palcoscenico di una
+giornata all’insegna della libertà, della sensualità e della trasgressione.
+Un invito a riscoprire il piacere dei sensi, lasciandosi alle spalle la routine.
+È un’esperienza dedicata a chi ama osare, giocare con la seduzione
+e scoprire nuove emozioni in un contesto esclusivo, intrigante e senza pregiudizi.
+Wellness, cioccolato e trasgressione: il piacere di vivere fuori dagli schemi!
+COPPIE OMAGGIO dalle 10 alle 15
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
 APERTI DA LUNEDÌ A DOMENICA
 * Quote già tesserati Assosex
 ** Le quote possono variare in qualsiasi momento senza alcun preavviso
