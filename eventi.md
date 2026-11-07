@@ -1,54 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 06/11/2026 20:27 (ora italiana)
+Ultimo aggiornamento: 07/11/2026 07:05 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## BLACK REUNION BIRTHDAY GANG BANG PARTY
-
-- **Data:** venerdi 6 novembre 2026
-- **Ora:** 14:00
-
-Le luci si abbassano.
-Le porte si chiudono.
-E nel privé… inizia un’altra storia.
-BLACK REUNION è la serata dedicata alle donne che hanno una passione precisa:
-BLACK MEN
-FASCINO
-SEDUZIONE
-E… GRANDI DIMENSIONI
-Se sai esattamente cosa ti piace, questa è la notte giusta per scoprirlo da vicino
-by Luca Ferrero & Ambra
-VOTA IL BLACK PIÙ BELLO
-Una giuria tutta al femminile sceglierà il ragazzo black che si distinguerà
-per fascino, presenza, stile e… impatto
-HAPPY BIRTHDAY CUBANITA
-La Cubanita ha una solo richiesta per il suo compleanno:
-una GANG BANG tutta per lei
-A VOI LA SCELTA!!
-BLACK REUNION
-Per donne che sanno cosa vogliono.
-Per Black Men che sanno come farsi ricordare.
-Per una notte in cui le grandi dimensioni… non passano inosservate
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -338,6 +292,37 @@ SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 16 novembre 2026
+- **Ora:** 14:00
+
+L’autunno è il momento perfetto per concedersi una pausa…
+Lasciati avvolgere da acqua, relax e benessere,
+in un’atmosfera calda, accogliente e tutta da vivere
+E per chi ama aggiungere un pizzico di pepe ,
+c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
+Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA ID
+ROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
