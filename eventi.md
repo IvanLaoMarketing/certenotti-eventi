@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 08/11/2026 23:11 (ora italiana)
+Ultimo aggiornamento: 09/11/2026 07:43 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## GIORNATA TINDER SUPER SPA AUFGUSS DAY
-
-- **Data:** domenica 8 novembre 2026
-- **Ora:** 10:00
-
-Una domenica che parte lenta… e finisce rovente. Relax, corpi caldi, desideri accesi
-Super SPA & AUFGUSS con Maestri Professionisti
-Vapore intenso, gettate potenti, essenze travolgenti. Il calore sale. I sensi cedono
-Coppie Under 45 OSPITI
-Lui + Lei = 70 OSPITI
-COPPIE OMAGGIO dalle 10 alle 15
-Diretta. Calda. Senza giri di parole.
-Vieni a scaldarti insieme a noi
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -318,6 +287,41 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## UNA PER TUTTI..TUTTI PER UNA
+
+- **Data:** mercoledi 18 novembre 2026
+- **Ora:** 14:00
+
+OSSESSIONE
+PECCATO
+ADRENALINA
+LADY JAYNE LA TENTAZIONE
+Due
+nomi. Un’unica provocazione.
+E una notte pronta a far saltare ogni freno
+Qui la trasgressione veste i tacchi il mistero accende la fantasia
+e ogni incontro può trasformarsi in una tentazione irresistibile
+Se ami osare, questo è il tuo momento.
+GANG BANG — DALLE ORE 18:00
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
