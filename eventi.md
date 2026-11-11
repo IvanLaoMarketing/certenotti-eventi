@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 10/11/2026 20:47 (ora italiana)
+Ultimo aggiornamento: 11/11/2026 07:34 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SENSUAL SPA
-
-- **Data:** martedi 10 novembre 2026
-- **Ora:** 14:00
-
-Il tempo rallenta… e il benessere prende il sopravvento
-Un rituale esclusivo pensato per lasciarti andare,
-immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
-Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
-ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
-Ogni martedì, dedicati a te.
-Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -331,6 +300,43 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## FREEDOM NIGHT PARTY
+
+- **Data:** venerdi 20 novembre 2026
+- **Ora:** 14:00
+
+UNA NOTTE PER POCHI. E SOLO PER GLI INVITATI.
+ACCESSO ESCLUSIVAMENTE SU INVITO NON È UNA SERATA APERTA AL PUBBLICO. NON SI ENTRA SENZA INVITO.
+Una notte riservata a chi è stato personalmente invitato
+a vivere un’atmosfera più audace, libera e trasgressiva.
+PORTE CHIUSE. DESIDERI APERTI.
+Niente ingressi casuali, niente curiosi:
+solo invitati, complicità e voglia di osare.
+Party dalle 20:30
+Privé fino alle 04:00
+HAI L’INVITO⁉
+Allora sai dove devi andare
+Non ce l’hai? Questa notte non è per te
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+DOPO LE ORE 21:00 COPPIE 10€
+IDROMASSAGGIO CALDO & SPA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
