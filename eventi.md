@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 11/11/2026 07:34 (ora italiana)
+Ultimo aggiornamento: 12/11/2026 08:17 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## 1000 E UNA NOTTE… VINCI UN WEEKEND IN ITALIA PER 2 PERSONE
-
-- **Data:** mercoledi 11 novembre 2026
-- **Ora:** 14:00
-
-SGUARDI CHE PROVOCANO
-FANTASIE CHE STUZZICANO
-EMOZIONI CHE FANNO SALIRE LA TEMPERATURA
-Una notte proibita, mille tentazioni e il desiderio di spingersi oltre i soliti confini…
-Preparati a un’atmosfera carica di sensualità, incontri intriganti,
-complicità e tentazioni da vivere senza pregiudizi.
-E LA NOTTE POTREBBE REGALARTI MOLTO DI PIÙ…
-In palio un WEEKEND IN ITALIA PER 2 PERSONE :
-una fuga speciale da condividere con chi sa accendere la tua voglia di avventura!
-Sei pronto a varcare la soglia?
-Hai il coraggio di vivere una notte davvero trasgressiva?
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -333,6 +298,39 @@ VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 DOPO LE ORE 21:00 COPPIE 10€
 IDROMASSAGGIO CALDO & SPA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MOËT & CHANDON PARTY
+
+- **Data:** sabato 21 novembre 2026
+- **Ora:** 11:00
+
+Un’eleganza che seduce.
+Una trasgressione che stuzzica i sensi.
+Preparati a entrare in un’atmosfera dove il lusso incontra il proibito,
+gli sguardi parlano più delle parole e il fascino diventa irresistibile.
+Champagne, luci soffuse, musica avvolgente e un privé esclusivo dove lasciarsi conquistare dal
+piacere della notte, tra intriganti complicità, incontri magnetici e tentazioni dal gusto raffinato.
+DRESS CODE: ELEGANTE — LUI & LEI
+LUI: fascino, stile impeccabile, dettagli ricercati.
+LEI: sensualità, femminilità, abiti mozzafiato, tacchi vertiginosi e dettagli audaci.
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
