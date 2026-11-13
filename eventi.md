@@ -1,38 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 12/11/2026 20:59 (ora italiana)
+Ultimo aggiornamento: 13/11/2026 07:51 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## PICCANTE POMERIGGIO IN SPA…
-
-- **Data:** giovedi 12 novembre 2026
-- **Ora:** 14:00
-
-Vapore, luci soffuse e temperature che salgono…
-non solo per il calore dell’acqua!
-Sguardi maliziosi e quella complicità pericolosa che rende ogni istante carico di tensione…
-Tra bollicine, pelle bagnata e riflessi sensuali   la distanza si accorcia…
-Perché quando l’atmosfera è quella giusta, il vero brivido non è il calore della spa
-ma ciò che potrebbe accadere quando gli sguardi smettono di essere innocenti
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -335,6 +305,36 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PRANZO con DJ IBIZA – ARROSTICINI, GRIGLIATA E VINO ROSSO OFFERTO
+
+- **Data:** domenica 22 novembre 2026
+- **Ora:** 10:00
+
+Lasciati sedurre da un pranzo fuori dagli schemi, dove il profumo della brace si mescola alle
+vibrazioni di Dj Ibiza, il ritmo accende i sensi e l’atmosfera invita a lasciarsi andare.
+Carne alla griglia, arrosticini irresistibili e sapori intensi.
+VINO ROSSO OFFERTO , per brindare al gioco e alla complicità.
+Qui il pranzo diventa un gioco di seduzione:
+il fuoco è nella brace, il ritmo è nella musica e la tentazione è nell’aria
+COPPIE OMAGGIO dalle 10 alle 15
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
