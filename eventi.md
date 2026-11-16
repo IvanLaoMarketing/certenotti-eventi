@@ -1,46 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 15/11/2026 19:54 (ora italiana)
+Ultimo aggiornamento: 16/11/2026 07:38 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## WELLNESS DAY – EROTIC CHOCOLATE SCRUB
-
-- **Data:** domenica 15 novembre 2026
-- **Ora:** 10:00
-
-Un’esperienza unica in Italia, dove il benessere incontra la trasgressione…
-Preparati a vivere una giornata in cui il relax della SPA
-si fonde con il fascino della seduzione e il piacere di lasciarsi andare.
-Il rituale del cioccolato
-Lasciati avvolgere dalle note intense del cacao, protagonista di un esclusivo scrub al cioccolato: un
-rituale sensoriale che accarezza la pelle, risveglia i sensi
-e trasforma il benessere in un’esperienza avvolgente e intrigante.
-SPA, atmosfere intime e complicità
-Tra vapori caldi, acqua, luci soffuse e atmosfere suggestive, la SPA diventa il palcoscenico di una
-giornata all’insegna della libertà, della sensualità e della trasgressione.
-Un invito a riscoprire il piacere dei sensi, lasciandosi alle spalle la routine.
-È un’esperienza dedicata a chi ama osare, giocare con la seduzione
-e scoprire nuove emozioni in un contesto esclusivo, intrigante e senza pregiudizi.
-Wellness, cioccolato e trasgressione: il piacere di vivere fuori dagli schemi!
-COPPIE OMAGGIO dalle 10 alle 15
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -316,6 +278,38 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## XXXXL DAY – FORTI ORGASMI IN GLORY HOLE
+
+- **Data:** mercoledi 25 novembre 2026
+- **Ora:** 14:00
+
+Una giornata fuori dagli schemi, dove la trasgressione accende i sensi
+e la curiosità si trasforma in pura tentazione
+Nella Glory Hole il proibito stuzzica la fantasia,
+il piacere diventa protagonista e ogni momento promette emozioni intense,
+complicità e orgasmi inaspettati
+Nessun pregiudizio, solo voglia di osare.
+Sensualità, audacia e trasgressione.
+Un appuntamento dedicato a chi ama spingersi oltre i confini della routine.
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
