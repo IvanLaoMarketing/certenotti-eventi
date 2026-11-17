@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 16/11/2026 23:11 (ora italiana)
+Ultimo aggiornamento: 17/11/2026 09:00 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 16 novembre 2026
-- **Ora:** 14:00
-
-L’autunno è il momento perfetto per concedersi una pausa…
-Lasciati avvolgere da acqua, relax e benessere,
-in un’atmosfera calda, accogliente e tutta da vivere
-E per chi ama aggiungere un pizzico di pepe ,
-c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
-Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA ID
-ROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -310,6 +279,37 @@ complicità e orgasmi inaspettati
 Nessun pregiudizio, solo voglia di osare.
 Sensualità, audacia e trasgressione.
 Un appuntamento dedicato a chi ama spingersi oltre i confini della routine.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## MOON SPA – Caldo, bollicine e tentazioni sotto le stelle
+
+- **Data:** giovedi 26 novembre 2026
+- **Ora:** 14:00
+
+Una notte speciale, l’acqua calda che accarezza la pelle,
+luci soffuse e un’atmosfera tutta da vivere
+Benvenuti a MOON SPA , dove il relax incontra la seduzione
+e ogni istante può trasformarsi in un gioco di sguardi, complicità e desiderio
+Immergetevi nell’idromassaggio caldo all’aperto, lasciatevi avvolgere dal vapore
+e riscoprite il piacere di stare vicini, lontano da tutto e da tutti
+Che sia una fuga romantica o una notte all’insegna della passione, qui il tempo rallenta e la temperatura sale…
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
