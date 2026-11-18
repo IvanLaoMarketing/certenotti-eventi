@@ -1,6 +1,6 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 18/11/2026 08:36 (ora italiana)
+Ultimo aggiornamento: 18/11/2026 21:37 (ora italiana)
 
 Prossimi eventi: 10
 
@@ -155,6 +155,10 @@ VINO ROSSO OFFERTO , per brindare al gioco e alla complicità.
 Qui il pranzo diventa un gioco di seduzione:
 il fuoco è nella brace, il ritmo è nella musica e la tentazione è nell’aria
 COPPIE OMAGGIO dalle 10 alle 15
+SAVONAGE
+Questa domenica lasciati avvolgere dal calore del bagno turco e riscopri il piacere del
+sapone che avvolge la pelle, tra schiuma, massaggio e gesti antichi.
+Un rituale di detersione e benessere per ritrovare una pelle morbida, pulita e luminosa
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
