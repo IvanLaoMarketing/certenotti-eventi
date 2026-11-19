@@ -1,43 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 18/11/2026 21:37 (ora italiana)
+Ultimo aggiornamento: 19/11/2026 08:32 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## UNA PER TUTTI..TUTTI PER UNA
-
-- **Data:** mercoledi 18 novembre 2026
-- **Ora:** 14:00
-
-OSSESSIONE
-PECCATO
-ADRENALINA
-LADY JAYNE LA TENTAZIONE
-Due
-nomi. Un’unica provocazione.
-E una notte pronta a far saltare ogni freno
-Qui la trasgressione veste i tacchi il mistero accende la fantasia
-e ogni incontro può trasformarsi in una tentazione irresistibile
-Se ami osare, questo è il tuo momento.
-GANG BANG — DALLE ORE 18:00
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -322,6 +287,46 @@ DALLE ORE 21:00 COPPIE 10€
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## LOLLIPOP PARTY
+
+- **Data:** sabato 28 novembre 2026
+- **Ora:** 10:00
+
+VOGLIA
+PECCATO
+PRIVÉ
+Una notte Lollipop tutta da assaporare…
+dove gli sguardi diventano tentazioni
+i desideri si fanno più intensi
+e la voglia di trasgredire non conosce limiti
+Lasciati provocare, avvicinati, osa
+Nel Privé tutto può diventare più dolce… oppure decisamente più piccante
+Hai voglia di scoprire quanto può essere dolce la trasgressione?
+Ingresso gratuito per le coppie
+che mettono “MI INTERESSA” su A69
+DALLE ORE 20:30
+HAPPY BIRTHDAY GATTA MELINDA
+Festeggiamenti
+Torta e Brindisi per tutti i MAIALONI
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
