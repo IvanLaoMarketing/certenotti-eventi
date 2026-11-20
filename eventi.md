@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 19/11/2026 21:42 (ora italiana)
+Ultimo aggiornamento: 20/11/2026 08:23 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## PECCATO PROIBITO IN SPA
-
-- **Data:** giovedi 19 novembre 2026
-- **Ora:** 14:00
-
-Luci soffuse, vapori avvolgenti, acqua calda che accarezza la pelle.
-Il mondo resta fuori e il tempo rallenta.
-Peccato Proibito è un invito a oltrepassare il confine tra desiderio e tentazione
-dove gli sguardi diventano promesse , i sussurri accendono l’immaginazione
-e ogni istante si carica di passione.
-Qui le regole si dimenticano e il piacere diventa un gioco sottile
-di complicità, fantasia e seduzione
-Hai il coraggio di cedere alle tentazioni?
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -331,6 +299,36 @@ APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
 DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## PAELLA A PRANZO & SANGRIA OMAGGIO
+
+- **Data:** domenica 29 novembre 2026
+- **Ora:** 10:00
+
+Avete voglia di qualcosa di più piccante del solito pranzo della domenica?
+Da noi Domenica si brinda, si flirta e si lascia spazio alla trasgressione!
+Una paella da gustare, sangria da condividere
+e un ambiente dove la curiosità incontra la voglia di osare
+Coppie intriganti, single intraprendenti e tanta complicità.
+Sguardi che provocano, sorrisi maliziosi e fantasie da vivere senza falsi pudori.
+COPPIE OMAGGIO dalle 10 alle 15
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
 PRIVÉ
 ~~~~
 Info costi
