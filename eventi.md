@@ -1,45 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 20/11/2026 21:27 (ora italiana)
+Ultimo aggiornamento: 21/11/2026 08:17 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## FREEDOM NIGHT PARTY
-
-- **Data:** venerdi 20 novembre 2026
-- **Ora:** 14:00
-
-UNA NOTTE PER POCHI. E SOLO PER GLI INVITATI.
-ACCESSO ESCLUSIVAMENTE SU INVITO NON È UNA SERATA APERTA AL PUBBLICO. NON SI ENTRA SENZA INVITO.
-Una notte riservata a chi è stato personalmente invitato
-a vivere un’atmosfera più audace, libera e trasgressiva.
-PORTE CHIUSE. DESIDERI APERTI.
-Niente ingressi casuali, niente curiosi:
-solo invitati, complicità e voglia di osare.
-Party dalle 20:30
-Privé fino alle 04:00
-HAI L’INVITO⁉
-Allora sai dove devi andare
-Non ce l’hai? Questa notte non è per te
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-DOPO LE ORE 21:00 COPPIE 10€
-IDROMASSAGGIO CALDO & SPA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -326,6 +289,37 @@ SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## DAY SPA
+
+- **Data:** lunedi 30 novembre 2026
+- **Ora:** 14:00
+
+L’autunno è il momento perfetto per concedersi una pausa…
+Lasciati avvolgere da acqua, relax e benessere,
+in un’atmosfera calda, accogliente e tutta da vivere
+E per chi ama aggiungere un pizzico di pepe ,
+c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
+Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA ID
+ROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
