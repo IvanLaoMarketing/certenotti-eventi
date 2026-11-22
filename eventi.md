@@ -1,41 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 21/11/2026 20:22 (ora italiana)
+Ultimo aggiornamento: 22/11/2026 07:57 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MOËT & CHANDON PARTY
-
-- **Data:** sabato 21 novembre 2026
-- **Ora:** 11:00
-
-Un’eleganza che seduce.
-Una trasgressione che stuzzica i sensi.
-Preparati a entrare in un’atmosfera dove il lusso incontra il proibito,
-gli sguardi parlano più delle parole e il fascino diventa irresistibile.
-Champagne, luci soffuse, musica avvolgente e un privé esclusivo dove lasciarsi conquistare dal
-piacere della notte, tra intriganti complicità, incontri magnetici e tentazioni dal gusto raffinato.
-DRESS CODE: ELEGANTE — LUI & LEI
-LUI: fascino, stile impeccabile, dettagli ricercati.
-LEI: sensualità, femminilità, abiti mozzafiato, tacchi vertiginosi e dettagli audaci.
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-DISCO
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -319,6 +286,37 @@ VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
 VASCA ID
 ROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SENSUAL SPA
+
+- **Data:** martedi 1 dicembre 2026
+- **Ora:** 14:00
+
+Il tempo rallenta… e il benessere prende il sopravvento
+Un rituale esclusivo pensato per lasciarti andare,
+immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
+Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
+ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
+Ogni martedì, dedicati a te.
+Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
