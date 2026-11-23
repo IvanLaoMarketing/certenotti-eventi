@@ -1,42 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 22/11/2026 20:45 (ora italiana)
+Ultimo aggiornamento: 23/11/2026 08:46 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## PRANZO con DJ IBIZA – ARROSTICINI, GRIGLIATA E VINO ROSSO OFFERTO
-
-- **Data:** domenica 22 novembre 2026
-- **Ora:** 10:00
-
-Lasciati sedurre da un pranzo fuori dagli schemi, dove il profumo della brace si mescola alle
-vibrazioni di Dj Ibiza, il ritmo accende i sensi e l’atmosfera invita a lasciarsi andare.
-Carne alla griglia, arrosticini irresistibili e sapori intensi.
-VINO ROSSO OFFERTO , per brindare al gioco e alla complicità.
-Qui il pranzo diventa un gioco di seduzione:
-il fuoco è nella brace, il ritmo è nella musica e la tentazione è nell’aria
-COPPIE OMAGGIO dalle 10 alle 15
-SAVONAGE
-Questa domenica lasciati avvolgere dal calore del bagno turco e riscopri il piacere del
-sapone che avvolge la pelle, tra schiuma, massaggio e gesti antichi.
-Un rituale di detersione e benessere per ritrovare una pelle morbida, pulita e luminosa
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-PRANZO A BUFFET
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -313,6 +279,43 @@ Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove 
 ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
 Ogni martedì, dedicati a te.
 Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## JÄGER BOMB PARTY – Ubriacati di Sesso e Pompini al Buio
+
+- **Data:** mercoledi 2 dicembre 2026
+- **Ora:** 14:00
+
+Bocche proibite
+Mani curiose
+Fantasie senza freni
+Lo shot scende
+La temperatura sale Le buone intenzioni finiscono prima della prima bottiglia
+Luci soffuse, tacchi che avanzano lentamente e sguardi che promettono guai.
+Nel privé si gioca al buio e o desideri prendono il comando.
+Stuzzicare, sedurre, provocare e lasciarsi sorprendere.
+Queste sono le uniche parole d’ordine per la serata.
+JÄGER BOMB a fiumi
+DESIDERI a luci rosse TENTAZIONI dietro ogni sguardo.
+Entra con le tue fantasie. Lascia fuori le tue inibizioni.
+Il resto… non si racconta. Si vive
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
