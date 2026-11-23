@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 23/11/2026 08:46 (ora italiana)
+Ultimo aggiornamento: 24/11/2026 00:58 (ora italiana)
 
-Prossimi eventi: 10
-
----
-
-## DAY SPA
-
-- **Data:** lunedi 23 novembre 2026
-- **Ora:** 14:00
-
-L’autunno è il momento perfetto per concedersi una pausa…
-Lasciati avvolgere da acqua, relax e benessere,
-in un’atmosfera calda, accogliente e tutta da vivere
-E per chi ama aggiungere un pizzico di pepe ,
-c’è anche il nostro privé, dove lasciarsi andare e vivere momenti davvero speciali
-Stacca dalla routine, ritrova il tuo equilibrio… e lasciati sorprendere
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA ID
-ROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
+Prossimi eventi: 9
 
 ---
 
@@ -182,7 +151,7 @@ Lasciati provocare, avvicinati, osa
 Nel Privé tutto può diventare più dolce… oppure decisamente più piccante
 Hai voglia di scoprire quanto può essere dolce la trasgressione?
 Ingresso gratuito per le coppie
-che mettono “MI INTERESSA” su A69
+che mettono “PARTECIPO” su A69
 DALLE ORE 20:30
 HAPPY BIRTHDAY GATTA MELINDA
 Festeggiamenti
