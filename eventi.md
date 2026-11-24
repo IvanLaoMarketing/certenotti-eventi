@@ -1,8 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 24/11/2026 00:58 (ora italiana)
+Ultimo aggiornamento: 24/11/2026 10:59 (ora italiana)
 
-Prossimi eventi: 9
+Prossimi eventi: 10
 
 ---
 
@@ -285,6 +285,36 @@ JÄGER BOMB a fiumi
 DESIDERI a luci rosse TENTAZIONI dietro ogni sguardo.
 Entra con le tue fantasie. Lascia fuori le tue inibizioni.
 Il resto… non si racconta. Si vive
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## IDROMASSAGGIO CALDO & FALÒ SOTTO LE STELLE
+
+- **Data:** giovedi 3 dicembre 2026
+- **Ora:** 14:00
+
+Una notte bollente… dove il desiderio non conosce coprifuoco
+Immaginate il tepore dell’idromassaggio sulla pelle, il crepitio del falò, un calice tra le dita e
+quell’atmosfera intrigante in cui basta uno sguardo per stuzzicare l’immaginazione
+e vivere incontri carichi di complicità
+Niente fretta, solo il gusto della trasgressione e il brivido dell’inaspettato
+Il fuoco è acceso… l’acqua è calda… e voi, siete pronti a lasciarvi tentare?
 COPPIE OMAGGIO con PARTECIPO su MorenaSex
 VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
 SAUNA E BAGNO TURCO
