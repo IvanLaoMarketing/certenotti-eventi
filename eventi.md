@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 24/11/2026 23:30 (ora italiana)
+Ultimo aggiornamento: 25/11/2026 09:43 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## SENSUAL SPA
-
-- **Data:** martedi 24 novembre 2026
-- **Ora:** 14:00
-
-Il tempo rallenta… e il benessere prende il sopravvento
-Un rituale esclusivo pensato per lasciarti andare,
-immergendoti in un’atmosfera calda, avvolgente e ricca di emozioni
-Lasciati accompagnare in un’esperienza intensa e fuori dall’ordinario, dove relax, f
-ascino e sensualità si incontrano per regalarti una pausa speciale dal mondo
-Ogni martedì, dedicati a te.
-Al tuo relax, alle tue sensazioni e a tutto ciò che desideri vivere.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -323,6 +292,41 @@ PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## BLACK REUNION
+
+- **Data:** venerdi 4 dicembre 2026
+- **Ora:** 14:00
+
+Non perdere il fascino dei BLACK MEN
+BLACK REUNION è il party dedicato alle donne che amano osare, vivere le proprie fantasie e
+godersi una serata decisamente fuori dall’ordinario.
+By Luca Ferrero & Ambra
+MISTER BLACK DICK CONTEST
+Questa volta, a decidere saranno le donne!
+Una giuria tutta al femminile avrà il compito di eleggere il protagonista della notte:
+quello che saprà conquistarle per la sua dotazione
+BLACK REUNION
+Una notte speciale, un mix esplosivo di sensualità, intrigo e divertimento.
+COPPIE OMAGGIO con PARTECIPO su MorenaSex
+VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
 PRIVÉ
 ~~~~
 Info costi
