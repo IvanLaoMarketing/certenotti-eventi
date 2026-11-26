@@ -1,40 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 25/11/2026 22:45 (ora italiana)
+Ultimo aggiornamento: 26/11/2026 09:28 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## XXXXL DAY – FORTI ORGASMI IN GLORY HOLE
-
-- **Data:** mercoledi 25 novembre 2026
-- **Ora:** 14:00
-
-Una giornata fuori dagli schemi, dove la trasgressione accende i sensi
-e la curiosità si trasforma in pura tentazione
-Nella Glory Hole il proibito stuzzica la fantasia,
-il piacere diventa protagonista e ogni momento promette emozioni intense,
-complicità e orgasmi inaspettati
-Nessun pregiudizio, solo voglia di osare.
-Sensualità, audacia e trasgressione.
-Un appuntamento dedicato a chi ama spingersi oltre i confini della routine.
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -332,6 +300,42 @@ PRIVÉ
 Info costi
 Visita www.certenotti.eu nella sezione QUOTE
 ~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## HAPPY B-DAY ALEX & ALICE SHARYBAND OFFICIAL
+
+- **Data:** sabato 5 dicembre 2026
+- **Ora:** 10:00
+
+È IL COMPLEANNO DI ALEX & ALICE!
+E vogliamo festeggiarlo insieme a VOI
+con una notte esplosiva, sensuale e intrigante
+dove il desiderio si intreccia con la musica, il divertimento
+e il piacere di lasciarsi andare alle emozioni
+MUSICA LIVE CON SHARYBAND OFFICIAL!
+Preparati a un irresistibile viaggio musicale tra hit intramontabili degli anni ’70, ’80 e ’90 !
+Dai grandi successi disco che fanno scatenare la pista, ai ritmi travolgenti degli anni ’80,
+fino alle canzoni iconiche degli anni ’90
+TORTA, BRINDISI E TANTE BOLLICINE PER TUTTI!
+Festeggia con noi e lasciati trascinare in un vortice di piacer e!
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
+PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+DISCO
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+Tesseramento/Rinnovo annuale ASX (365 giorni) 30€ a persona
 APERTI DA LUNEDÌ A DOMENICA
 * Quote già tesserati Assosex
 ** Le quote possono variare in qualsiasi momento senza alcun preavviso
