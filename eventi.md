@@ -1,39 +1,8 @@
 # Eventi in programma - Certe Notti Spa & Privee
 
-Ultimo aggiornamento: 26/11/2026 09:28 (ora italiana)
+Ultimo aggiornamento: 27/11/2026 22:23 (ora italiana)
 
 Prossimi eventi: 10
-
----
-
-## MOON SPA – Caldo, bollicine e tentazioni sotto le stelle
-
-- **Data:** giovedi 26 novembre 2026
-- **Ora:** 14:00
-
-Una notte speciale, l’acqua calda che accarezza la pelle,
-luci soffuse e un’atmosfera tutta da vivere
-Benvenuti a MOON SPA , dove il relax incontra la seduzione
-e ogni istante può trasformarsi in un gioco di sguardi, complicità e desiderio
-Immergetevi nell’idromassaggio caldo all’aperto, lasciatevi avvolgere dal vapore
-e riscoprite il piacere di stare vicini, lontano da tutto e da tutti
-Che sia una fuga romantica o una notte all’insegna della passione, qui il tempo rallenta e la temperatura sale…
-COPPIE OMAGGIO con PARTECIPO su MorenaSex
-VALIDO SOLO PER COPPIE CON PROFILO COMPLETO
-SAUNA E BAGNO TURCO
-VASCA IDROMASSAGGIO CALDA
-PISCINA FREDDA
-APERITIVO E SPRITZ
-DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
-CENA SERVITA
-PRIVÉ
-~~~~
-Info costi
-Visita www.certenotti.eu nella sezione QUOTE
-~~~~
-APERTI DA LUNEDÌ A DOMENICA
-* Quote già tesserati Assosex
-** Le quote possono variare in qualsiasi momento senza alcun preavviso
 
 ---
 
@@ -306,26 +275,60 @@ APERTI DA LUNEDÌ A DOMENICA
 
 ---
 
-## HAPPY B-DAY ALEX & ALICE SHARYBAND OFFICIAL
+## GIORNATA COPPIE GIOVANI OMAGGIO SUPER SPA AUFGUSS DAY
 
-- **Data:** sabato 5 dicembre 2026
+- **Data:** domenica 6 dicembre 2026
 - **Ora:** 10:00
 
-È IL COMPLEANNO DI ALEX & ALICE!
-E vogliamo festeggiarlo insieme a VOI
-con una notte esplosiva, sensuale e intrigante
-dove il desiderio si intreccia con la musica, il divertimento
-e il piacere di lasciarsi andare alle emozioni
-MUSICA LIVE CON SHARYBAND OFFICIAL!
-Preparati a un irresistibile viaggio musicale tra hit intramontabili degli anni ’70, ’80 e ’90 !
-Dai grandi successi disco che fanno scatenare la pista, ai ritmi travolgenti degli anni ’80,
-fino alle canzoni iconiche degli anni ’90
-TORTA, BRINDISI E TANTE BOLLICINE PER TUTTI!
-Festeggia con noi e lasciati trascinare in un vortice di piacer e!
+Una domenica speciale dedicata alle giovani coppie per scoprire il nostro ambiente dove
+relax, sensualità e complicità
+si incontrano in un’atmosfera trasgressiva e intrigante
+COPPIE GIOVANI IN OMAGGIO
+Coppie Under 45 OSPITI
+Lui + Lei = 70 OSPITI
+SUPER AUFGUSS DAY
+Durante la giornata i nostri Aufguss vi avvolgeranno dal calore, dai profumi e dalle emozioni
+per un’esperienza intensa e coinvolgente, tutta da vivere.
+Un mix perfetto tra benessere, sesso e nuove conoscenze.
 SAUNA E BAGNO TURCO
 VASCA IDROMASSAGGIO CALDA
 PISCINA FREDDA
 PRANZO A BUFFET
+APERITIVO E SPRITZ
+DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
+CENA SERVITA
+PRIVÉ
+~~~~
+Info costi
+Visita www.certenotti.eu nella sezione QUOTE
+~~~~
+APERTI DA LUNEDÌ A DOMENICA
+* Quote già tesserati Assosex
+** Le quote possono variare in qualsiasi momento senza alcun preavviso
+
+---
+
+## SANTE & IMMACOLATE – CAPPELLE TUTTE BAGNATE
+
+- **Data:** lunedi 7 dicembre 2026
+- **Ora:** 14:00
+
+Questa volta il Paradiso può aspettare…
+perché all’inferno si preannuncia una notte di trasgressione
+senza sensi di colpa
+Una notte dove le apparenze ingannano,
+le regole si ribaltano e la trasgressione si veste di innocenza
+Lei nei panni di una suora, provocante e irresistibilmente peccaminosa
+Lui vestito da prete, pronto a dimenticare ogni predica
+e con qualche peccato da farsi perdonare
+Tra veli, colletti, croci e sguardi maliziosi…
+la tentazione è troppo forte per essere confessata
+Dress code:
+LEI: vestita da suora
+LUI: vestito da prete
+SAUNA E BAGNO TURCO
+VASCA IDROMASSAGGIO CALDA
+PISCINA FREDDA
 APERITIVO E SPRITZ
 DOPO ORE 20:00 SPA SEMPRE APERTA CON PISCINE IDROMASSAGGIO RISCALDATE
 CENA SERVITA
